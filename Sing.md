@@ -31,16 +31,21 @@
   <td align="center" width="450"><a href="#6">6.女儿在美营救</a><br></td></tr> 
  </tr></table>
 
+<table><tr> <td>
+<a>四.封面</a><br></td></tr> 
+<tr> <td align="center" width="450"><a href="#7">7.反迫害19年 </a><br></td></tr> 
+ 
+<tr>  <td align="center" width="450"><a href="#8">8磨难中铸就辉煌</a><br></td>
+ 
+<td align="center" width="450"><a href="#9">9历经风雨  初心不改</a><br></td></tr> 
+ 
+ <tr> <td align="center" width="450"><a href="#10">10美国会山前集会  政要声援</a><br></td>
+
+<td align="center" width="450"><a href="#11">11看《转法轮》改变人生</a><br></td></tr> 
+ </tr></table>
 
 
 
-
-<a>四.封面</a><br>
-<a href="#11">11.反迫害19年 </a><br>
-<a href="#12">12.磨难中铸就辉煌 </a><br>
-<a href="#13">13.历经风雨  初心不改</a><br>
-<a href="#14">14.美国会山前集会  政要声援</a><br>
-<a href="#15">15. 看《转法轮》改变人生</a><br>
 <a>五.社会 </a><br>
 <a href="#17">17.幼儿教师：  </a><br>
 <a href="#18">18.乱世中以“真善忍”育人</a><br>
