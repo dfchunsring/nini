@@ -79,7 +79,8 @@
 <a href="#19">19.大陆游客巴黎吐心声</a><br>
  </tr></table>
 
-
+<div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_23_0M.png?raw=true.jpg?raw=true" width=880></a><br></div>
 
 <h1 align="center">领导的要求，还坚决执行吗？ </h1>
  
