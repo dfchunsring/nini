@@ -22,7 +22,7 @@
 
 <table><tr> <td  width="450">
 <a>三.聚焦</a><br></td> 
- <td width="450"><a href="#3">3.大连律师</a><br>
+ <td width="450"><a href="#3">3.大连律师</a><br><p>
  
 <a href="#4">4.亲历“熬鹰”酷刑</a><br>
  
@@ -33,7 +33,7 @@
 
 <table><tr> <td width="450">
 <a>四.封面</a><br></td>
-<td width="450"><a href="#7">7.反迫害19年 </a><br>
+<td width="450"><a href="#7">7.反迫害19年 </a><br><p>
  
 <a href="#8">8磨难中铸就辉煌</a><br>
  
@@ -44,13 +44,24 @@
 <a href="#11">11看《转法轮》改变人生</a><br></td></tr> 
  </tr></table>
 
+<table><tr> <td  width="450">
+<a>五.社会 </a><br></td> 
+ <td width="450"><a href="#12">12.幼儿教师：</a><br><p>
+ 
+<a href="#13">13乱世中以“真善忍”育人</a><br>
+ </tr></table>
+
+<table><tr> <td  width="450">
+<a>六.健康 </a><br></td> 
+ <td width="450">
+ 
+<a href="#14">14.脑瘫婴儿 奇迹获救</a><br>
+ </tr></table>
 
 
-<a>五.社会 </a><br>
-<a href="#17">17.幼儿教师：  </a><br>
-<a href="#18">18.乱世中以“真善忍”育人</a><br>
-<a>六.健康</a><br>
-<a href="#20">20.脑瘫婴儿 奇迹获救</a><br>
+
+
+
 <a>七.还原</a><br>
 <a href="#22">22.江泽民集团 </a><br>
 <a href="#23">23.迫害动机与手段</a><br>
