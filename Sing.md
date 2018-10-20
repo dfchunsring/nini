@@ -14,15 +14,27 @@
 
 <table><tr> <td align="center" width="450">
 <a>一.史海</a><br></td>
-<td align="center" width="450"><a href="#2">2.历史上的8月</a><br></td></tr></table>
+<td align="center" width="450"><a href="#1">1.历史上的8月</a><br></td></tr></table>
 
-<a>二.评论</a><br>
-<a href="#4">4.有感于假疫苗</a><br>
-<a>三.聚焦</a><br>
-<a href="#6">6.大连律师 </a><br>
-<a href="#7">7.亲历“熬鹰”酷刑 </a><br>
-<a href="#8">8.母被害死 父陷囹圄 </a><br>
-<a href="#9">9.女儿在美营救</a><br>
+<table><tr> <td align="center" width="450">
+<a>二.评论</a><br></td>
+<td align="center" width="450"><a href="#2">2.有感于假疫苗</a><br></td></tr></table>
+
+<table><tr> <td align="center" width="450">
+<a>三.聚焦</a><br></td>
+<td align="center" width="450"><a href="#3">3.大连律师</a><br></td>
+ 
+ <td align="center" width="450"><a href="#4">4.亲历“熬鹰”酷刑</a><br></td>
+ 
+ <td align="center" width="450"><a href="#5">5.母被害死 父陷囹圄</a><br></td>
+ 
+  <td align="center" width="450"><a href="#6">6.女儿在美营救</a><br></td>
+ </tr></table>
+
+
+
+
+
 <a>四.封面</a><br>
 <a href="#11">11.反迫害19年 </a><br>
 <a href="#12">12.磨难中铸就辉煌 </a><br>
