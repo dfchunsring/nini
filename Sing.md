@@ -20,7 +20,7 @@
 <a>二.评论</a><br></td>
 <td align="center" width="450"><a href="#2">2.有感于假疫苗</a><br></td></tr></table>
 
-<table><tr> <td align="center" width="450">
+<table><tr> <td align="center">
 <a>三.聚焦</a><br></td></tr> 
 <tr> <td align="center" width="450"><a href="#3">3.大连律师</a><br></td>
  
