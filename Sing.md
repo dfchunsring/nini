@@ -35,20 +35,20 @@
 <a>四.封面</a><br></td>
 <td width="450"><a href="#7">7.反迫害19年 </a><br><p>
  
-<a href="#8">8磨难中铸就辉煌</a><br>
+<a href="#8">8.磨难中铸就辉煌</a><br>
  
-<a href="#9">9历经风雨  初心不改</a><br>
+<a href="#9">9.历经风雨  初心不改</a><br>
  
-<a href="#10">10美国会山前集会  政要声援</a><br>
+<a href="#10">10.美国会山前集会  政要声援</a><br>
 
-<a href="#11">11看《转法轮》改变人生</a><br></td></tr> 
+<a href="#11">11.看《转法轮》改变人生</a><br></td></tr> 
  </tr></table>
 
 <table><tr> <td  width="450">
 <a>五.社会 </a><br></td> 
  <td width="450"><a href="#12">12.幼儿教师：</a><br><p>
  
-<a href="#13">13乱世中以“真善忍”育人</a><br>
+<a href="#13">13.乱世中以“真善忍”育人</a><br>
  </tr></table>
 
 <table><tr> <td  width="450">
@@ -58,18 +58,27 @@
 <a href="#14">14.脑瘫婴儿 奇迹获救</a><br>
  </tr></table>
 
+<table><tr> <td  width="450">
+<a>七.还原 </a><br></td> 
+ <td width="450"><a href="#15">15.江泽民集团 </a><br><p>
+ 
+<a href="#16">16.迫害动机与手段</a><br>
+ </tr></table>
 
+<table><tr> <td  width="450">
+<a>八.世道 </a><br></td> 
+ <td width="450"><a href="#17">17.机关干部纠结： </a><br><p>
+ 
+<a href="#18">18.信党还是信佛</a><br>
+ </tr></table>
 
+<table><tr> <td  width="450">
+<a>九.采风 </a><br></td> 
+ <td width="450">
+ 
+<a href="#19">19.大陆游客巴黎吐心声</a><br>
+ </tr></table>
 
-
-<a>七.还原</a><br>
-<a href="#22">22.江泽民集团 </a><br>
-<a href="#23">23.迫害动机与手段</a><br>
-<a>八.世道</a><br>
-<a href="#25">25.机关干部纠结： </a><br>
-<a href="#26">26.信党还是信佛</a><br>
-<a>九.采风</a><br>
-<a href="#28">28.大陆游客巴黎吐心声</a><br>
 
 
 <h1 align="center">领导的要求，还坚决执行吗？ </h1>
