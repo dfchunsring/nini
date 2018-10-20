@@ -107,7 +107,7 @@
 <a name=1><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-4.jpg?raw=true" width=880></a><br></div>
 
-<h2>1.康熙亲政 </h2>
+<div align="center"><h2>1.康熙亲政 </h2></div>
 <table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-5.jpg?raw=true"></td>
 <td  width="450"><h3>1667年8月25日，14岁的康熙皇帝 在太和殿举行亲政典礼，宣诏海内，大赦 天下。康熙8岁继承皇位，在位61年， 是中国历史上在位时间最长的皇帝。
  <p>
@@ -117,21 +117,21 @@
 
 
 
-<h2>2.东德建柏林墙</h2>
+<div align="center"><h2>2.东德建柏林墙</h2></div>
 
 <table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-6.jpg?raw=true"></td>
 <td  width="450"><h3>
  1961年8月13日，东德政府开始修 筑柏林墙，以阻止人民逃往西德(二战后， 东德加入社会主义阵营，东德民众纷纷移 居西德，摆脱共产党的统治)。柏林墙于 1989年被推倒，东德与西德统一。图为 柏林墙将被封闭的瞬间，一名东德士兵跳 越铁丝网，投奔西德。</h3>
  </td></tr></table>
 
-<h2>3.中共党媒报道“亩产万斤”</h2>
+<div align="center"><h2>3.中共党媒报道“亩产万斤”</h2></div>
 
 <table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-7.jpg?raw=true"></td>
 <td  width="450"><h3>
 1958 年 8 月 13 日，《人民日报》刊 登“亩产万斤”，为大跃进运动造势。此类 假新闻充斥中共官方媒体。大跃进导致大 饥荒，4000万中国人丧生。</h3>
  </td></tr></table>
 
-<h2>4.蒋介石宣布 抗战胜利</h2>
+<div align="center"><h2>4.蒋介石宣布 抗战胜利</h2></div>
 <div align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"  width="650"></div>
 
 1945 年 8 月 15 日， 日本投降，第二次世界大 战中国战区最高统帅蒋介 石在重庆发表广播演说， 宣布抗战胜利。
