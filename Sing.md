@@ -22,13 +22,13 @@
 
 <table><tr> <td>
 <a>三.聚焦</a><br></td> 
- <td width="450"><a href="#3">3.大连律师</a><br></td>
+ <td width="450"><a href="#3">3.大连律师</a><br>
  
- <td width="450"><a href="#4">4.亲历“熬鹰”酷刑</a><br></td>
+<a href="#4">4.亲历“熬鹰”酷刑</a><br>
  
- <td width="450"><a href="#5">5.母被害死 父陷囹圄</a><br></td>
+<a href="#5">5.母被害死 父陷囹圄</a><br>
  
- <td width="450"><a href="#6">6.女儿在美营救</a><br></td>
+<a href="#6">6.女儿在美营救</a><br></td>
  </tr></table>
 
 <table><tr> <td>
