@@ -32,8 +32,8 @@
  </tr></table>
 
 <table><tr> <td>
-<a>四.封面</a><br></td></tr> 
-<tr> <td align="center" width="450"><a href="#7">7.反迫害19年 </a><br></td></tr> 
+<a>四.封面</a><br></td>
+<td align="center" width="450"><a href="#7">7.反迫害19年 </a><br></td></tr> 
  
 <tr>  <td align="center" width="450"><a href="#8">8磨难中铸就辉煌</a><br></td>
  
