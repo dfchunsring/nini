@@ -8,6 +8,9 @@
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-1.jpg?raw=true" width=880></a><br></div>
 
+<div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_illust_11_2M.png?raw=true" width=880></a><br></div>
+
  <a href=https://git.io/duun><h6 align="right">首頁</h6></a>
 
 <a name=list><b>目錄</b><p>
