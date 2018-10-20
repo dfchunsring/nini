@@ -126,7 +126,7 @@
  </td></tr></table>
 
 <b>4.蒋介石宣布 抗战胜利</b>
-<td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"  width="650"></td>
+<div align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"  width="650"></div>
 
 1945 年 8 月 15 日， 日本投降，第二次世界大 战中国战区最高统帅蒋介 石在重庆发表广播演说， 宣布抗战胜利。
 
