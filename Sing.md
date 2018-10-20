@@ -14,7 +14,7 @@
 
 <table><tr> <td align="center" width="450">
 <a>一.史海</a><br></td>
-<td><a href="#2">2.历史上的8月</a><br></td></tr></table>
+<td align="center" width="450"><a href="#2">2.历史上的8月</a><br></td></tr></table>
 
 <a>二.评论</a><br>
 <a href="#4">4.有感于假疫苗</a><br>
