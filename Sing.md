@@ -98,7 +98,7 @@
 
 尽管“上面让干的”已成为大陆公务员行事的依据， 然而“上面”之上还有法律与天理。执行公务者，不负 上天与良知，才是真正安全的。特别是在中共江泽民集 团发动的迫害法轮大法（法轮功“）真善忍”信仰的运动中， 作为公检法司人员，只有明辨是非，不参与迫害，才会 摆脱替罪羊的命运。◇
 
-<div align="center">
+<a name=1><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-4.jpg?raw=true" width=880></a><br></div>
 
 <b>1.康熙亲政 </b>
@@ -113,13 +113,20 @@
 
 <b>2.东德建柏林墙</b>
 
- 1961年8月13日，东德政府开始修 筑柏林墙，以阻止人民逃往西德(二战后， 东德加入社会主义阵营，东德民众纷纷移 居西德，摆脱共产党的统治)。柏林墙于 1989年被推倒，东德与西德统一。图为 柏林墙将被封闭的瞬间，一名东德士兵跳 越铁丝网，投奔西德。
+<table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-6.jpg?raw=true"></td>
+<td  width="450"><h3>
+ 1961年8月13日，东德政府开始修 筑柏林墙，以阻止人民逃往西德(二战后， 东德加入社会主义阵营，东德民众纷纷移 居西德，摆脱共产党的统治)。柏林墙于 1989年被推倒，东德与西德统一。图为 柏林墙将被封闭的瞬间，一名东德士兵跳 越铁丝网，投奔西德。</h3>
+ </td></tr></table>
 
 <b>3.中共党媒报道“亩产万斤”</b>
 
-1958 年 8 月 13 日，《人民日报》刊 登“亩产万斤”，为大跃进运动造势。此类 假新闻充斥中共官方媒体。大跃进导致大 饥荒，4000万中国人丧生。
+<table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-7.jpg?raw=true"></td>
+<td  width="450"><h3>
+1958 年 8 月 13 日，《人民日报》刊 登“亩产万斤”，为大跃进运动造势。此类 假新闻充斥中共官方媒体。大跃进导致大 饥荒，4000万中国人丧生。</h3>
+ </td></tr></table>
 
 <b>4.蒋介石宣布 抗战胜利</b>
+<td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"  width="650"></td>
 
 1945 年 8 月 15 日， 日本投降，第二次世界大 战中国战区最高统帅蒋介 石在重庆发表广播演说， 宣布抗战胜利。
 
