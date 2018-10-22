@@ -6,7 +6,7 @@
 
 <p>
 <div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-1.jpg?raw=true" width=880></a><br></div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-1-1.jpg?raw=true" width=880></a><br></div>
 
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_illust_11_2M.png?raw=true" width=880></a><br></div>
