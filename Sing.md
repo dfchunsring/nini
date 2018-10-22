@@ -133,7 +133,7 @@
 
 <div align="center"><h2>4.蒋介石宣布 抗战胜利</h2></div>
 
-<table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"></td>
+<table><tr>
 <td  width="450"><h3>
 1945 年 8 月 15 日， 日本投降，第二次世界大 战中国战区最高统帅蒋介 石在重庆发表广播演说， 宣布抗战胜利。
 
@@ -143,7 +143,7 @@
 
 史料显示，国民党是抗日战争的中流砥柱。共产党有意不抗日，并 趁国民党抗战，积蓄力量。 据战史记载，1937年7月～1945年8月， 中日大型会战22次，中方主力都是国民党军队；重要战役1117次，其中 共产党打过1次；小规模战斗约30000次，共产党参加约200次。共产 党参战的大型战役,只有百团大战，此战在中共内部被认为"违背党的战 略方针"。平型关大捷，共产党并不是主力，只是伏击了敌人的补给部队
 </h3>
- </td></tr></table>
+ </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"></td></tr></table>
 
 
 
