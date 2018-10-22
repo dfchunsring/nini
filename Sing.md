@@ -158,6 +158,12 @@
 </h3>
  </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-9.jpg?raw=true"></td></tr></table>
 
+<div align="center"><h2> 6.刘少奇被批斗</h2><div>
+
+<table><tr>
+<td  width="450"><h3>
+1967年8月5日，刘少奇被批斗，后 被押回办公室，他拿出《宪法》抗议说：“我 是国家主席，我也是一个公民，为什么不 让我讲话？宪法保障每一个公民的人身权 利不受侵犯。”然而共产党是凌驾于法律之 上的非法组织，共产党在中国窃取政权后， 发动运动几十场，“斗争对象”从国家主席到普通百姓，从地主、资本家、知识分子、工人、农民、学生到修心向 善的信仰者，都不能幸免。</h3>
+ </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-10.jpg?raw=true"></td></tr></table>
 
 
 
