@@ -186,7 +186,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <br>
 <tr><td  width="450"><h3>
 图：CCTV镜头显示，所谓的自焚者王 进东浑身烧黑，两腿间装汽油的塑料 雪碧瓶在火中却不变形，不褪色。警 察拎着灭火毯等待，直到他在镜头前 喊完口号才盖灭火毯，分明是在拍戏。
- <p>
+ <p><p>
 “自焚”煽动起民众仇恨，江泽民残酷 迫害信仰“真善忍”的法轮功修炼者， 使中国大陆社会道德沦丧，公义缺失。
 </h3>
  </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-13.jpg?raw=true">
