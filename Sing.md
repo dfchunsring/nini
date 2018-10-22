@@ -177,6 +177,8 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </h3>
  </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-11.jpg?raw=true">国际获奖纪录片《伪火》，曝光了中 共导演的“天安门自焚”假案，江泽民 以此栽赃法轮功，为升级迫害铺路。
 </td>
+
+<p>
 <td  width="450"><h3>
 图：荷兰国家电视台2005年3月14 日播出专题片，“天安门自焚”是中共导 演的，所谓自焚者刘春玲，不是被烧死， 而是被军警用重物击中头部而倒地。</h3>
  </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-12.jpg?raw=true">
