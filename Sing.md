@@ -192,7 +192,8 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-13.jpg?raw=true">
 </td>
 </tr></table>
-
+<div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=880></a><br></div>
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_138_1M.png?raw=true" width=880></a><br></div>
 
