@@ -156,7 +156,8 @@
 
 面对控诉，纳粹医生们辩解说他们只是遵从命令。然而“服从命令”的借口，不能开脱他们的滔天罪 恶。1963年，针对纳粹集中营的中下层军官，德国又进行了法兰克福审判， 审判原则很简单：服从上级命令即谋杀共犯。“服从命令”与“未亲手杀人” 不再是洗脱罪责的借口。
 </h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-9.jpg?raw=true"></td></tr></table>
+ </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-9.jpg?raw=true">纳粹医生卡尔·勃兰特(两军警间站立者) 被纽伦堡国际法庭判处死刑
+</td></tr></table>
 
 <div align="center"><h2> 6.刘少奇被批斗</h2><div>
 
