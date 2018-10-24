@@ -10,7 +10,7 @@
 <a href="#3">三思而行</a><p>
 <a href="#4">看清时局走向　彰显人心变化</a><p>
 <a href="#5">愿您平安幸福</a><p>
- <p> </p>
+ </br>
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
   
 <a name=1><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/30.img.jpg?raw=true" width=880></p>
@@ -60,7 +60,7 @@
 
 附：翻墙软件下载方法：
 用邮箱（推荐海外邮箱）给freeget.one@gmail.com发封信，主题、内容任意（但不可空白），几分钟后会收到下载地址，下载后双击即可翻墙，看到真实的消息。
- <p> </p>
+</br>
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
 
 <a name=2><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/a29.jpg?raw=true" width=880></p>
@@ -91,7 +91,7 @@
 真诚的法轮功学员<p>
 
 出于安全考虑，寄信地址并不真实，敬请您谅解！<p>
-  
+</br>  
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
   
 <a name=3><div align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/ou-17-img.jpg?raw=true" width=800><br></div>
@@ -115,7 +115,7 @@
 法轮功在中国是合法的，迫害法轮功违法，如果自己不理智的还要参与迫害的话，将来被追责的时候，没人替你承担一点责任，三思而行啊！
 
 关心你的法轮功学员
- <p> </p>
+</br>
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
 
  <a name=4><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/31.jpg?raw=true" width=880></p>
