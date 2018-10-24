@@ -5,7 +5,7 @@
 
 <IMG SRC="https://github.com/dfchunsring/yue/blob/master/3tr.img/3tfe-12.jpg?raw=true" width=880></p>
 
-<b>给银行的信</b> <p>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/a29.jpg?raw=true" width=880></p>
 朋友，您好！<p>
 
 最近许多银行的电子屏幕上出现了“回收写有法轮功反动标语钱币”的内容，<p>
