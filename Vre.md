@@ -3,7 +3,7 @@
 
 新唐人视频 http://61.228.118.66</div>
 
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/2018-6-21-02.jpg?raw=true"></p>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/ntdtvflower.jpg?raw=true"></p>
 
 
 
