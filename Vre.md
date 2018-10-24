@@ -59,8 +59,8 @@
 真诚的法轮功学员
 
 附：翻墙软件下载方法：
-用邮箱（推荐海外邮箱）给freeget.one@gmail.com发封信，主题、内容任意（但不可空白），几分钟后会收到下载地址，下载后双击即可翻墙，看到真实的消息。
-</br>
+用邮箱（推荐海外邮箱）给freeget.one@gmail.com发封信，主题、内容任意（但不可空白），几分钟后会收到下载地址，下载后双击即可翻墙，看到真实的消息。<p>
+ </br>
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
 
 <a name=2><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/a29.jpg?raw=true" width=880></p>
@@ -114,7 +114,7 @@
 
 法轮功在中国是合法的，迫害法轮功违法，如果自己不理智的还要参与迫害的话，将来被追责的时候，没人替你承担一点责任，三思而行啊！
 
-关心你的法轮功学员
+关心你的法轮功学员<p>
 </br>
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
 
@@ -161,7 +161,8 @@
 许多有良知的法律职业者认清形势，面临法轮功千古奇冤案件，派出所、公安局、检察院、法官维护宪法权威，遵守宪法35条，36条。直接释放法轮功学员，为自己留下后路。这样的事情越来越多。有许多人在记录别人迫害法轮功的罪行，以便将来赎罪。还有被迫害致死的法轮功学员，在家属的追究、控告下获得了几十万的赔偿（许郴生家人申冤四年获三十万赔偿）。
 
 我们真诚希望像张英铎一样的公检法工作人员，看清时局走向，做出明智的选择。将来不站在被告席上给江泽民迫害法轮功当替罪羊，坚守自己的良知善念，不给自己及家人带来遗憾，无条件释放被非法关押的法轮功学员。
- <p> </p>
+ <p> </br>
+ 
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
 
  <a name=5><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/32.jpg?raw=true" width=880></p>
