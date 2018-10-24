@@ -92,10 +92,10 @@
 
 出于安全考虑，寄信地址并不真实，敬请您谅解！<p>
 </br>  
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880></p>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/b_ornament_24_0L.png?raw=true" width=880>
  <p></br> 
 <a name=3><div align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/ou-17-img.jpg?raw=true" width=800><br></div>
-
+ <p>
 朋友，碰到是缘份，在这里，我想说的是当年在中共体制内，被称为“维稳沙皇”和握有绝对权力的周永康，追随江泽民极力迫害法轮功，使得无数法轮功学员的家庭妻离子散、家破人亡，制造了无数人间悲剧。他万没有想到的是无论是谁，做了就得还。2013年12月，周永康，当他以腐败落马时，也殃及了全家人。<p>
 
 周永康八十岁的老娘上吊自尽；中纪委带走他弟弟时，一时没看住，撞墙死亡；他妹妹和他儿子先后也被抓捕；周永康本人，在提审他的人面前，双膝下跪求饶，免他一死。随后李东生、徐才厚、薄熙来、苏荣等都是以权力之争和贪腐为名关进了监狱，其实他们都是因为迫害了善良的法轮功学员和残害了无辜的民众而遭到了报应。
