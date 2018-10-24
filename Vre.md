@@ -5,7 +5,13 @@
 
 <IMG SRC="https://github.com/dfchunsring/yue/blob/master/3tr.img/3tfe-12.jpg?raw=true" width=880></p>
 
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/30.img.jpg?raw=true" width=880></p>
+<a href="#1">给媒体人的一封公开信</a><p>
+<a href="#2">给银行的信</a><p>
+<a href="#3">三思而行</a><p>
+<a href="#4">看清时局走向　彰显人心变化</a><p>
+<a href="#5">愿您平安幸福</a><p>
+  
+<a name=1><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/30.img.jpg?raw=true" width=880></p>
 我很敬佩有职业操守的媒体人，因为他能不避艰险、不惧权贵、不贪图金钱，还原事实真相，用手中的笔维护人间正义、揭露丑恶，因此也被誉为“无冕之王”。
 
 但遗憾的是，众所周知，中国的媒体是政府的喉舌，行动完全受政府指挥。有人曾经这样形容新华社：“它是党的一条狗，守在党的大门口，党让咬谁就咬谁，让咬几口咬几口。”不光是媒体人，许多普通民众也对此耳熟能详。但对普通人来说，这只是个讽刺笑话，然而，对于一个真正的媒体人，这后面有多少悲愤与不平，又有多少违愿与无奈呢？是呀，凭您一人之力或许根本就无法改变这种状况，于是上级让写什么，我们就写什么。
@@ -53,7 +59,7 @@
 附：翻墙软件下载方法：
 用邮箱（推荐海外邮箱）给freeget.one@gmail.com发封信，主题、内容任意（但不可空白），几分钟后会收到下载地址，下载后双击即可翻墙，看到真实的消息。
 
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/a29.jpg?raw=true" width=880></p>
+<a name=2><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/a29.jpg?raw=true" width=880></p>
 朋友，您好！<p>
 
 最近许多银行的电子屏幕上出现了“回收写有法轮功反动标语钱币”的内容，<p>
@@ -82,7 +88,7 @@
 
 出于安全考虑，寄信地址并不真实，敬请您谅解！<p>
   
-<div align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/ou-17-img.jpg?raw=true" width=800><br></div>
+<a name=3><div align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/ou-17-img.jpg?raw=true" width=800><br></div>
 <p>
 朋友，碰到是缘份，在这里，我想说的是当年在中共体制内，被称为“维稳沙皇”和握有绝对权力的周永康，追随江泽民极力迫害法轮功，使得无数法轮功学员的家庭妻离子散、家破人亡，制造了无数人间悲剧。他万没有想到的是无论是谁，做了就得还。2013年12月，周永康，当他以腐败落马时，也殃及了全家人。<p>
 
