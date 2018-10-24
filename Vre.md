@@ -109,3 +109,10 @@
 法轮功在中国是合法的，迫害法轮功违法，如果自己不理智的还要参与迫害的话，将来被追责的时候，没人替你承担一点责任，三思而行啊！
 
 关心你的法轮功学员
+
+ <a name=4><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/31.jpg?raw=true" width=880></p>
+
+
+
+ <a name=5><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/32.jpg?raw=true" width=880></p>
+
