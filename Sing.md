@@ -15,17 +15,17 @@
 
 <a name=list><b>目錄</b><p>
 
-<table><tr> <td width="450">
+<table><tr> <td width="300">
 <a>一.史海</a><br></td>
-<td width="450"><a href="#1">1.历史上的8月</a><br></td></tr></table>
+<td width="550"><a href="#1">1.历史上的8月</a><br></td></tr></table>
 
-<table><tr> <td width="450">
+<table><tr> <td width="300">
 <a>二.评论</a><br></td>
-<td width="450"><a href="#2">2.有感于假疫苗</a><br></td></tr></table>
+<td width="550"><a href="#2">2.有感于假疫苗</a><br></td></tr></table>
 
-<table><tr> <td  width="450">
+<table><tr> <td  width="300">
 <a>三.聚焦</a><br></td> 
- <td width="450"><a href="#3">3.大连律师</a><br><p>
+ <td width="550"><a href="#3">3.大连律师</a><br><p>
  
 <a href="#4">4.亲历“熬鹰”酷刑</a><br>
  
@@ -34,9 +34,9 @@
 <a href="#6">6.女儿在美营救</a><br></td>
  </tr></table>
 
-<table><tr> <td width="450">
+<table><tr> <td width="300">
 <a>四.封面</a><br></td>
-<td width="450"><a href="#7">7.反迫害19年 </a><br><p>
+<td width="550"><a href="#7">7.反迫害19年 </a><br><p>
  
 <a href="#8">8.磨难中铸就辉煌</a><br>
  
@@ -47,37 +47,37 @@
 <a href="#11">11.看《转法轮》改变人生</a><br></td></tr> 
  </tr></table>
 
-<table><tr> <td  width="450">
+<table><tr> <td  width="300">
 <a>五.社会 </a><br></td> 
- <td width="450"><a href="#12">12.幼儿教师：</a><br><p>
+ <td width="550"><a href="#12">12.幼儿教师：</a><br><p>
  
 <a href="#13">13.乱世中以“真善忍”育人</a><br>
  </tr></table>
 
-<table><tr> <td  width="450">
+<table><tr> <td  width="300">
 <a>六.健康 </a><br></td> 
- <td width="450">
+ <td width="550">
  
 <a href="#14">14.脑瘫婴儿 奇迹获救</a><br>
  </tr></table>
 
-<table><tr> <td  width="450">
+<table><tr> <td  width="300">
 <a>七.还原 </a><br></td> 
- <td width="450"><a href="#15">15.江泽民集团 </a><br><p>
+ <td width="550"><a href="#15">15.江泽民集团 </a><br><p>
  
 <a href="#16">16.迫害动机与手段</a><br>
  </tr></table>
 
-<table><tr> <td  width="450">
+<table><tr> <td  width="300">
 <a>八.世道 </a><br></td> 
- <td width="450"><a href="#17">17.机关干部纠结： </a><br><p>
+ <td width="550"><a href="#17">17.机关干部纠结： </a><br><p>
  
 <a href="#18">18.信党还是信佛</a><br>
  </tr></table>
 
-<table><tr> <td  width="450">
+<table><tr> <td  width="300">
 <a>九.采风 </a><br></td> 
- <td width="450">
+ <td width="550">
  
 <a href="#19">19.大陆游客巴黎吐心声</a><br>
  </tr></table>
@@ -108,12 +108,12 @@
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-4.jpg?raw=true" width=880></a><br></div>
 
 <div align="center"><h2>1.康熙亲政 </h2></div>
-<table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-5.jpg?raw=true"></td>
+<tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-5.jpg?raw=true"></td>
 <td  width="450"><h3>1667年8月25日，14岁的康熙皇帝 在太和殿举行亲政典礼，宣诏海内，大赦 天下。康熙8岁继承皇位，在位61年， 是中国历史上在位时间最长的皇帝。
  <p>
  
  康熙皇帝倡导尊德崇道，实行仁政德 治，奠定了持续一百多年的“康乾盛世”。 他说：“万世道统之传，即万世治统之所 系也……道统在是，治统亦在是矣。”他严 于律己，堪称内圣外王的典范。各级官员 纷纷效仿，清廉之风蔚然而成，海宇升平， 人民乐业。</h3>
- </td></tr></table>
+ </td></tr>
 
 
 
