@@ -13,6 +13,9 @@
 
  <a href=https://git.io/duun><h5 align="right">首頁</h5></a>
 
+  <h2 align="center">	
+<td><a href="https://git.io/epgh">【突破封锁才能看到 国内看不到的】~翻墙软件*免费下载*</a></td></h2></p>
+
 <a name=list><b>目錄</b><p>
 
 <table><tr> <td width="300">
