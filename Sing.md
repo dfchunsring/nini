@@ -29,27 +29,26 @@
  
 <a href="#4">4.亲历“熬鹰”酷刑</a><br>
  
-<a href="#5">5.母被害死 父陷囹圄</a><br>
+<a href="#5">5.母被害死 父陷囹圄  女儿在美营救</a><br>
  
-<a href="#6">6.女儿在美营救</a><br></td>
  </tr></table>
 
 <table><tr> <td width="300">
 <a>四.封面</a><br></td>
-<td width="550"><a href="#7">7.反迫害19年 </a><br><p>
+<td width="550"><a href="#6">6.反迫害19年 </a><br><p>
  
-<a href="#8">8.磨难中铸就辉煌</a><br>
+<a href="#7">7.磨难中铸就辉煌</a><br>
  
-<a href="#9">9.历经风雨  初心不改</a><br>
+<a href="#8">8.历经风雨  初心不改</a><br>
  
-<a href="#10">10.美国会山前集会  政要声援</a><br>
+<a href="#9">9.美国会山前集会  政要声援</a><br>
 
-<a href="#11">11.看《转法轮》改变人生</a><br></td></tr> 
+<a href="#10">10.看《转法轮》改变人生</a><br></td></tr> 
  </tr></table>
 
 <table><tr> <td  width="300">
 <a>五.社会 </a><br></td> 
- <td width="550"><a href="#12">12.幼儿教师：</a><br><p>
+ <td width="550"><a href="#11">11.幼儿教师：</a><br><p>
  
 <a href="#13">13.乱世中以“真善忍”育人</a><br>
  </tr></table>
