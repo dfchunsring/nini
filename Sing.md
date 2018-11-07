@@ -46,37 +46,33 @@
 
 <table><tr> <td  width="300">
 <a>五.社会 </a><br></td> 
- <td width="550"><a href="#9">9.幼儿教师：</a><br><p>
- 
-<a href="#13">13.乱世中以“真善忍”育人</a><br>
+ <td width="550"><a href="#9">9.幼儿教师：乱世中以“真善忍”育人</a><br><p> 
  </tr></table>
 
 <table><tr> <td  width="300">
 <a>六.健康 </a><br></td> 
  <td width="550">
  
-<a href="#14">14.脑瘫婴儿 奇迹获救</a><br>
+<a href="#10">10.脑瘫婴儿 奇迹获救</a><br>
  </tr></table>
 
 <table><tr> <td  width="300">
 <a>七.还原 </a><br></td> 
- <td width="550"><a href="#15">15.江泽民集团 </a><br><p>
+ <td width="550"><a href="#11">11.江泽民集团  迫害动机与手段 </a><br><p>
  
-<a href="#16">16.迫害动机与手段</a><br>
+<a href="#16">16.</a><br>
  </tr></table>
 
 <table><tr> <td  width="300">
 <a>八.世道 </a><br></td> 
- <td width="550"><a href="#17">17.机关干部纠结： </a><br><p>
- 
-<a href="#18">18.信党还是信佛</a><br>
+ <td width="550"><a href="#12">12.机关干部纠结：信党还是信佛 </a><br><p>
  </tr></table>
 
 <table><tr> <td  width="300">
 <a>九.采风 </a><br></td> 
  <td width="550">
  
-<a href="#19">19.大陆游客巴黎吐心声</a><br>
+<a href="#13">13.大陆游客巴黎吐心声</a><br>
  </tr></table>
 
 <div align="center">
