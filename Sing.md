@@ -383,7 +383,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
-<a name=6><div align="center">
+<a name=7><div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-12.jpg?raw=true" width=700></td><br>
 </div>
 
