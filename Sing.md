@@ -151,7 +151,7 @@
 史料显示，国民党是抗日战争的中流砥柱。共产党有意不抗日，并 趁国民党抗战，积蓄力量。 据战史记载，1937年7月～1945年8月， 中日大型会战22次，中方主力都是国民党军队；重要战役1117次，其中 共产党打过1次；小规模战斗约30000次，共产党参加约200次。共产 党参战的大型战役,只有百团大战，此战在中共内部被认为"违背党的战 略方针"。平型关大捷，共产党并不是主力，只是伏击了敌人的补给部队。
 
 
-<div align="center"><h2>5.纽伦堡国际法庭判决纳粹医生</h2><div>
+<div align="center"><h2>5.纽伦堡国际法庭判决纳粹医生</h2></div>
 
 
 1947年8月20日，纽伦 堡国际军事法庭对“纳粹医生” 作出判决，卡尔·勃兰特等七 人获死刑，立即绞决，四人终 身监禁，四人获刑10～20年。
@@ -162,16 +162,16 @@
 
 <div align="center"><td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-9.jpg?raw=true">
  <br>纳粹医生卡尔·勃兰特(两军警间站立者) 被纽伦堡国际法庭判处死刑
-</td><div>
-<div align="center"><h2> 6.刘少奇被批斗</h2><div>
+</td></div>
+<div align="center"><h2> 6.刘少奇被批斗</h2></div>
 
 
-1967年8月5日，刘少奇被批斗，后 被押回办公室，他拿出《宪法》抗议说：“我 是国家主席，我也是一个公民，为什么不 让我讲话？宪法保障每一个公民的人身权 利不受侵犯。”然而共产党是凌驾于法律之 上的非法组织，共产党在中国窃取政权后， 发动运动几十场，“斗争对象”从国家主席到普通百姓，从地主、资本家、知识分子、工人、农民、学生到修心向 善的信仰者，都不能幸免。</h3>
+1967年8月5日，刘少奇被批斗，后 被押回办公室，他拿出《宪法》抗议说：“我 是国家主席，我也是一个公民，为什么不 让我讲话？宪法保障每一个公民的人身权 利不受侵犯。”然而共产党是凌驾于法律之 上的非法组织，共产党在中国窃取政权后， 发动运动几十场，“斗争对象”从国家主席到普通百姓，从地主、资本家、知识分子、工人、农民、学生到修心向 善的信仰者，都不能幸免。
 
  
- <div align="center"><td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-10.jpg?raw=true"></td><div>
+ <div align="center"><td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-10.jpg?raw=true"></td></div>
 
-<div align="center"><h2>7.自焚骗局联合国曝光</h2><div>
+<div align="center"><h2>7.自焚骗局联合国曝光</h2></div>
  
 2001 年 8 月 14 日在联合国 会议上，国际教育发展组织（IED） 就“天安门自焚”事件强烈谴责中共 的国家恐怖主义行为，指出此事 件是中共一手导演的。面对确凿 证据，在场的中共代表没有辩词。 
 <p><p>
@@ -181,7 +181,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-11.jpg?raw=true">
   <br>
  国际获奖纪录片《伪火》，曝光了中 共导演的“天安门自焚”假案，江泽民 以此栽赃法轮功，为升级迫害铺路。
-</td><div>
+</td></div>
 <br>
 <p>
 
@@ -189,7 +189,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <br>
   <div align="center">
  <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-12.jpg?raw=true">
-</td><div>
+</td></div>
 <br>
 
 图：CCTV镜头显示，所谓的自焚者王 进东浑身烧黑，两腿间装汽油的塑料 雪碧瓶在火中却不变形，不褪色。警 察拎着灭火毯等待，直到他在镜头前 喊完口号才盖灭火毯，分明是在拍戏。
