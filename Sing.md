@@ -208,7 +208,8 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <a name=2><h1 align="center">有感于假疫苗 </h1>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-1.jpg?raw=true" width=400></td></div>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-1.jpg?raw=true" width=400></td><br>假疫苗事件频发，造成一些中国大陆 人去香港或国外打疫苗。
+</div>
 
 
 【明慧网】近日的假疫 苗事件持续发酵，不但一众 明星纷纷喊打，连中共领导 人也不得不开炮，大叫 “触 目惊心”，“突破人的道德 底线”。
@@ -226,14 +227,29 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
   道德没有了，人的眼睛就会失去分辨好坏的能力。在道德深渊 里，看见的不是地狱的烈火，而是“人民币”，这个社会还有未来吗？ 2008 年毒奶粉事件之后，笔者写过一篇“冲袋奶粉给党喝”。 10年过去了，悲剧依然一再发生，套句类似的话，“给党打针假疫苗”。 党啊，这个共产邪灵（注：马克思在《共产党宣言》中称共产主义为 幽灵），存在一天，就是民族的苦难。脱离共产党，停止迫害“真 善忍”，回归道德，中华民族才有出路。 ◇ 文／欧阳非
   
 
+<h1 align="center">毒疫苗的根源</h1>
 
-
+ 中国大陆的食品、药品安全大事故，都不是官方主动报道，都是 有人曝光、事情搞大了、掩盖不了的情况下，官方才被动回应。 
  
+ 官方的套路是：噤声，媒体统一用通稿“给人民一个满意交代”， 找几个小虾米替罪，甚至“反追责”：2010年报道山西毒疫苗事件的《中 国经济时报》总编包月阳被撤职；山东爆出“问题疫苗”后，患儿的 家长易文龙、金玲、史桂芹等6人被以“涉嫌寻衅滋事罪”刑事拘留； 三鹿毒奶粉事件中，受害小孩的父亲赵连海讨说法，被判刑2年…… 有人得出结论：“共产党不是解决问题，而是解决提出问题的人。” 
  
+ 毒食品药品问题为何屡禁不止？是体制问题，根源在共产党。◇
 
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b672.png?raw=true" width=850></td><br>
+</div>
+ 
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-3.jpg?raw=true" width=750></td><br>
+</div>
+ 
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-2.jpg?raw=true" width=400></td><br>王永航
+</div>
 
+王永航，中国辽宁省大连市维权律师。因为受 到高智晟律师公开信的影响，而思考法轮功问题及 中国人权现况，自2007年起，为法轮功学员无罪辩 护，2008年先后在海外大纪元网站发表文章，指中 共依据刑法第三百条“利用邪教破坏法律实施罪”给法 轮功学员定罪是违法违宪，并公开上书中央当局及 最高司法机关呼吁纠正错误，2009年被秘密逮捕并 判刑7年，在沈阳第一监狱期间遭酷刑致生命垂危。 2016年出狱。 
 
-
+王永航的正义之举引世人关注。2012年7月 24日，王永航在美国获颁“十佳维权律师”奖。中国 著名律师滕彪赞誉王永航为最勇敢的律师之一。
 
 
 
