@@ -276,7 +276,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 这次崩溃之后，我写下保证并表示内心不会真正转化的。他们 答应，只要我签字就行，真转化假转化无所谓。熬鹰结束当晚，我 发烧至 40.4 度，呼吸困难。熬鹰结束后两周内，我的脉搏每分钟 超过 100 次。此前我的心脏很正常。熬鹰结束后一个月内，无法正 常睡眠，始终处于半睡半醒的昏迷状态。( 节选 ) ◇
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-4.jpg?raw=true" width=700></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-4.jpg?raw=true" width=700></td><br>中共迫害法轮功学员的刑具：铁椅子-----------酷刑图示：捆绑、殴打
 </div>
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
