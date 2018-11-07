@@ -46,7 +46,7 @@
 
 <table><tr> <td  width="300">
 <a>五.社会 </a><br></td> 
- <td width="550"><a href="#10">10.幼儿教师：</a><br><p>
+ <td width="550"><a href="#9">9.幼儿教师：</a><br><p>
  
 <a href="#13">13.乱世中以“真善忍”育人</a><br>
  </tr></table>
@@ -430,7 +430,37 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
+<a name=8><div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-19.jpg?raw=true" width=700></td><br>
+</div>
 
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-19-1.jpg?raw=true" width=350></td><br>
+</div>
 
+格雷斯·伊莎贝拉女士，来自新西兰， 她说：“2017年10月底的一天，我的朋友 带来一本《转法轮》，他催我马上读。当 我看到‘真、善、忍’三个字时感觉很好， 看书后，不知不觉中，原本患有的肠胃痛 消失了，我也戒掉了烟酒。外公看到我的 改变非常高兴，母亲也为我的转变而感动。 修炼法轮功后，我的工作环境和与别人的 关系也发生了良性改变，大家都很喜欢我。”
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-20.jpg?raw=true" width=550></td><br>
+</div>
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-21.jpg?raw=true" width=550></td><br>
+</div>
+来自美国纽约的马洛尼 （Benjamin Maloney） 在 青 少年时就吸毒和酗酒，无法摆 脱酒瘾和毒瘾的困扰。2008 年，他因为醉酒驾驶第二次被 逮捕后的几个月，他的亲属向 他介绍了法轮大法。他开始炼 功并阅读《转法轮》。 
+
+马洛尼说：“当我开始尝 试按照‘真、善、忍’的标准生活的时候，我的整个人生 发生了变化，我再也没有吸过毒或喝过酒，我的学习 成绩提高了一倍，从一所在美国享有盛名的文理学院， 以全年级顶尖的成绩毕业。刚毕业，我就在一家世界 五百强公司找到了令人向往的职位。“ 
+
+马洛尼对法轮大法心存感恩。“法轮大法给了我新 生，把我从一个跌跌撞撞、醉醺醺的少年，变成了一 个让社会、父母和我自己能为之骄傲的、有用的人。” 
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-22.jpg?raw=true" width=550></td><br>
+</div>
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-23.jpg?raw=true" width=550></td><br>
+</div>
+
+赛葛耶斯·欧如普斯（Sergejs Orups）来自 拉脱维亚，修炼法轮功18年了，当初他从朋友 那里得到《转法轮》，读过之后他明白了这是一 本能让人修炼的书。通过修炼法轮功，他感受到 自己身心的巨大变化。他希望告诉中国大陆的朋 友：法轮大法好。另外，他出生在前苏联共产党 国家，他想说，那些迫害者会被法办，共产党会 很快解体，希望中国人看清共产党的谎言。◇
 
 
