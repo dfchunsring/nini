@@ -35,20 +35,20 @@
 
 <table><tr> <td width="300">
 <a>四.封面</a><br></td>
-<td width="550"><a href="#6">6.反迫害19年 </a><br><p>
+<td width="550"><a href="#6">6.反迫害19年 磨难中铸就辉煌</a><br><p>
  
-<a href="#7">7.磨难中铸就辉煌</a><br>
- 
-<a href="#8">8.历经风雨  初心不改</a><br>
- 
-<a href="#9">9.美国会山前集会  政要声援</a><br>
 
-<a href="#10">10.看《转法轮》改变人生</a><br></td></tr> 
+ 
+<a href="#7">7.历经风雨  初心不改</a><br>
+ 
+<a href="#8">8.美国会山前集会  政要声援</a><br>
+
+<a href="#9">9.看《转法轮》改变人生</a><br></td></tr> 
  </tr></table>
 
 <table><tr> <td  width="300">
 <a>五.社会 </a><br></td> 
- <td width="550"><a href="#11">11.幼儿教师：</a><br><p>
+ <td width="550"><a href="#10">10.幼儿教师：</a><br><p>
  
 <a href="#13">13.乱世中以“真善忍”育人</a><br>
  </tr></table>
@@ -282,6 +282,34 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
  <div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b672.png?raw=true" width=850></td><br>
+</div>
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-5.jpg?raw=true" width=400></td><br>
+</div>
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-6.jpg?raw=true" width=400></td><br>图：张鸿玉（左）与父亲张明、母亲修金秋
+</div>
+
+（明慧网通讯员美 国 报 道）2018 年 6 月 29日，辽宁法轮功学 员张明与李全臣，在宽 甸散发法轮功真相资料 时，被警察非法抓捕， 关押在宽甸看守所。张 明的女儿张鸿玉在美国 奔走营救。 
+
+张鸿玉说：“五年 前，我母亲修金秋因为
+母被害死  父陷囹圄 女儿在美营救
+向民众讲述法轮功真相而被非法抓捕，受酷刑折磨后不到三个月， 就被迫害致死。如今父亲又身陷囹圄，每分每秒都面临着生命危险。” 
+
+提及母亲修金秋遭受的折磨，张鸿玉含泪说：“母亲多次被非 法关押，最后一次遭到惨无人道的迫害。恶警把她的双手、双脚铐 在铁椅子上。几天后妈妈的腿脚被铐肿。一个年轻恶警穿着皮鞋一 次次地狠劲蹂踩她已经肿胀的脚趾，脚趾变成黑紫色，右脚大脚趾 甲脱落，露出的脚趾血肉模糊。” 
+
+“一直被捆绑的妈妈开始全身浮肿，身体抽动得厉害，腹部肿 胀得凸起很大，最后不能进食，不能行走。直至 2013 年 11 月 16 日， 妈妈昏迷不醒，中共人员为推脱责任，把她送丹东市人民医院抢救， 医生说已无能为力。” 
+
+张鸿玉说：“从2013年9月5日至11月28日，被绑架不到三个月， 母亲即被酷刑迫害含冤离世。 ” 
+
+父亲张明，原在东港市中行工作，1996 年开始修炼法轮大法， 他按照“真、善、忍”的标准要求自己，工作兢兢业业，做信贷员从不卡要企业好处，就连下乡到企业办事都要错过中午那顿饭的时 间，不给企业添麻烦，单位的物品从不往家里拿，不贪单位一分钱， 是单位领导和同事有口皆碑的好人。 
+
+如今父亲却遭非法监禁，张鸿玉说：“呼吁国际社会关注此事。 受迫害的不止我一家，还有千千万万的法轮功学员经受着同样的摧 残与折磨。我也为他们而呼吁！”◇
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-7.jpg?raw=true" width=750></td><br>
 </div>
 
 
