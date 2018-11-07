@@ -355,7 +355,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
- <div align="center">
+<div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
@@ -364,7 +364,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 </div>
 
-<a name=5><div align="center">
+<a name=6><div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-11.jpg?raw=true" width=700></td><br>
 </div>
 
@@ -376,7 +376,14 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 19年过去了，她看到了人心 的转变：“现在很多人一听法轮功 都说好，在中国都可以面对面发法 轮功真相资料，很多警察也改变了， 日久见人心。风雨中，我见证了法 轮大法的纯正和伟大。”◇
 
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
 <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
+</div>
+
+<a name=6><div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-12.jpg?raw=true" width=700></td><br>
 </div>
 
@@ -387,6 +394,11 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 2018 年 6 月 20 日 上 午， 法轮功学员及支持者在美国首 都华盛顿国会山西草坪集会， 十多位美国国会议员和非政府 组织代表参加，声援法轮功学 员和平反迫害，至少28位美国 国会议员致信支持法轮功。 
 
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
+</div>
 
 
 
