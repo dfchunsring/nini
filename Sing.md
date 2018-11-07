@@ -207,7 +207,8 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 <a name=2><h1 align="center">有感于假疫苗 </h1>
 
-
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-1.jpg?raw=true" width=400></td></div>
 
 
 【明慧网】近日的假疫 苗事件持续发酵，不但一众 明星纷纷喊打，连中共领导 人也不得不开炮，大叫 “触 目惊心”，“突破人的道德 底线”。
