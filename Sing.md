@@ -285,7 +285,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-5.jpg?raw=true" width=400></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-5.jpg?raw=true" width=700></td><br>
 </div>
 
 <div align="center">
@@ -309,7 +309,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 如今父亲却遭非法监禁，张鸿玉说：“呼吁国际社会关注此事。 受迫害的不止我一家，还有千千万万的法轮功学员经受着同样的摧 残与折磨。我也为他们而呼吁！”◇
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-7.jpg?raw=true" width=750></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-7.jpg?raw=true" width=650></td><br>
 </div>
 
 
