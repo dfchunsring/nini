@@ -445,7 +445,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-21.jpg?raw=true" width=550></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-21.jpg?raw=true" width=350></td><br>
 </div>
 来自美国纽约的马洛尼 （Benjamin Maloney） 在 青 少年时就吸毒和酗酒，无法摆 脱酒瘾和毒瘾的困扰。2008 年，他因为醉酒驾驶第二次被 逮捕后的几个月，他的亲属向 他介绍了法轮大法。他开始炼 功并阅读《转法轮》。 
 
@@ -458,9 +458,25 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-23.jpg?raw=true" width=550></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-23.jpg?raw=true" width=350></td><br>
 </div>
 
 赛葛耶斯·欧如普斯（Sergejs Orups）来自 拉脱维亚，修炼法轮功18年了，当初他从朋友 那里得到《转法轮》，读过之后他明白了这是一 本能让人修炼的书。通过修炼法轮功，他感受到 自己身心的巨大变化。他希望告诉中国大陆的朋 友：法轮大法好。另外，他出生在前苏联共产党 国家，他想说，那些迫害者会被法办，共产党会 很快解体，希望中国人看清共产党的谎言。◇
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
+</div>
+
+
+
+
+
+
+
+
+
+
 
 
