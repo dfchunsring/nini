@@ -360,7 +360,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <a name=5><div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-10.jpg?raw=true" width=700></td><br>图：丛大洋与其他法轮功学员冒雨在 中共驻美使馆前炼功，呼吁停止迫害。 （2018年7月22日，华盛顿）
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-10.jpg?raw=true" width=400></td><br>图：丛大洋与其他法轮功学员冒雨在 中共驻美使馆前炼功，呼吁停止迫害。 （2018年7月22日，华盛顿）
 
 </div>
 
