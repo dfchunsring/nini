@@ -339,7 +339,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-7.jpg?raw=true" width=700></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-9.jpg?raw=true" width=700></td><br>
 </div>
 
 【明慧网】1999 年 7 月 20 日，以江泽民为首的中共流氓集团 对法轮功发起了残酷的迫害，从那一天开始，中国大陆法轮功学员 以和平的方式上访，向政府和民众讲真相，争取基本的信仰权利。 
