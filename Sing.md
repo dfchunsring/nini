@@ -285,7 +285,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b672.png?raw=true" width=850></td><br>
 </div>
 
-<div align="center">
+<a name=4><div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-5.jpg?raw=true" width=700></td><br>
 </div>
 
@@ -335,6 +335,31 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
+<a name=5><div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-8.jpg?raw=true" width=880></td><br>图：2018年6月20日，数千名来自世界各地的法轮功学员在美国国会山前集体炼功。
+
+</div>
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-7.jpg?raw=true" width=700></td><br>
+</div>
+
+【明慧网】1999 年 7 月 20 日，以江泽民为首的中共流氓集团 对法轮功发起了残酷的迫害，从那一天开始，中国大陆法轮功学员 以和平的方式上访，向政府和民众讲真相，争取基本的信仰权利。 
+
+19 年，他们忍受着妻离子散、家破人亡的痛楚，他们没有放弃 信仰；19 年，他们生活在随时被抓捕、酷刑、劳教、判刑的恐惧之 中，他们没有放弃希望；19 年，面对着被蒙蔽人群的不解和冷漠， 他们没有怨恨；19 年，他们被抄家与欺凌，他们没有选择暴力抗争。 
+
+19 年残酷迫害中，“真善忍”精神依然屹立，坚不可摧。法轮 功学员在磨难中表现出的和平、坚韧和慈悲，也感动了更多的世人。 
+
+高智晟律师在和法轮功学员接触后，感叹道：“持续地与那些 信仰意志坚如磐石的同胞打交道的经历，真切地看到了今日我们民 族中最有价值的存在，那一个个微笑着、用平和的语气讲述令人惊 心动魄的被迫害过程者，常常感动得我热泪汩汩。我们看到了我们 民族中的为了保全心灵中的美好价值而不屈和不死的精神，几年的 磨难中，成就了一大批具有无与伦比的高贵人格者，他们对信仰的 执著、对野蛮打压的蔑视及对我们民族美好未来的乐观向上的心态， 无不至令人仰视的境界。他们对迫害者的宽容襟怀及对我们民族美 好明天的乐观心态，使人持久地震撼不已。” 
+
+在 19 年中，法轮功问题成了一个试金石，考验着每个个体、 组织甚至各国政府的道义与良知。法轮功学员在磨难中铸就着辉煌， 也在磨难中让越来越多的中国人看到希望。◇
+
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
+</div>
 
 
 
