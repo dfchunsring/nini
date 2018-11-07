@@ -108,39 +108,42 @@
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-4.jpg?raw=true" width=880></a><br></div>
 
 <div align="center"><h2>1.康熙亲政 </h2></div>
-<tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-5.jpg?raw=true"></td>
-<td  width="450"><h3>1667年8月25日，14岁的康熙皇帝 在太和殿举行亲政典礼，宣诏海内，大赦 天下。康熙8岁继承皇位，在位61年， 是中国历史上在位时间最长的皇帝。
+<div align="center">
+<tr> <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-5.jpg?raw=true"></td></div>
+
+<td >1667年8月25日，14岁的康熙皇帝 在太和殿举行亲政典礼，宣诏海内，大赦 天下。康熙8岁继承皇位，在位61年， 是中国历史上在位时间最长的皇帝。
  <p>
  
- 康熙皇帝倡导尊德崇道，实行仁政德 治，奠定了持续一百多年的“康乾盛世”。 他说：“万世道统之传，即万世治统之所 系也……道统在是，治统亦在是矣。”他严 于律己，堪称内圣外王的典范。各级官员 纷纷效仿，清廉之风蔚然而成，海宇升平， 人民乐业。</h3>
+ 康熙皇帝倡导尊德崇道，实行仁政德 治，奠定了持续一百多年的“康乾盛世”。 他说：“万世道统之传，即万世治统之所 系也……道统在是，治统亦在是矣。”他严 于律己，堪称内圣外王的典范。各级官员 纷纷效仿，清廉之风蔚然而成，海宇升平， 人民乐业。
  </td></tr>
 
-
-
 <div align="center"><h2>2.东德建柏林墙</h2></div>
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-6.jpg?raw=true"></td></div>
+<td >
 
-<table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-6.jpg?raw=true"></td>
-<td  width="450"><h3>
- 1961年8月13日，东德政府开始修 筑柏林墙，以阻止人民逃往西德(二战后， 东德加入社会主义阵营，东德民众纷纷移 居西德，摆脱共产党的统治)。柏林墙于 1989年被推倒，东德与西德统一。图为 柏林墙将被封闭的瞬间，一名东德士兵跳 越铁丝网，投奔西德。</h3>
- </td></tr></table>
+ 1961年8月13日，东德政府开始修 筑柏林墙，以阻止人民逃往西德(二战后， 东德加入社会主义阵营，东德民众纷纷移 居西德，摆脱共产党的统治)。柏林墙于 1989年被推倒，东德与西德统一。图为 柏林墙将被封闭的瞬间，一名东德士兵跳 越铁丝网，投奔西德。
+ </td></tr>
 
 <div align="center"><h2>3.中共党媒报道“亩产万斤”</h2></div>
 
-<table><tr> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-7.jpg?raw=true"></td>
-<td  width="450"><h3>
+<div align="center"><td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-7.jpg?raw=true"></td></div>
+<td >
 1958 年 8 月 13 日，《人民日报》刊 登“亩产万斤”，为大跃进运动造势。此类 假新闻充斥中共官方媒体。大跃进导致大 饥荒，4000万中国人丧生。</h3>
- </td></tr></table>
+ </td>
 
 <div align="center"><h2>4.蒋介石宣布 抗战胜利</h2></div>
 
-<table><tr>
-<td  width="450"><h3>
+
+<td>
 1945 年 8 月 15 日， 日本投降，第二次世界大 战中国战区最高统帅蒋介 石在重庆发表广播演说， 宣布抗战胜利。
 <p><p>
  
 蒋介石说：“我们的‘正 义必然胜过强权’的真理， 终于得到了最后证明…… 我们中国在黑暗和绝望时 期中，八年奋斗的信念， 今天终得到了实现。” 他并说：“今天敌军 已经被我们盟邦共同打倒 了。我们当然要严密责成他忠实地执行所有的投降条款。但是我们并不要报复，更不可对敌国无 辜人民加以污辱。我们只对他们为纳粹军阀所愚弄所驱迫而表示怜悯。 使他们自拔于错误与罪恶。要知道，如果以暴行答复他们从前错误的优 越感，则冤冤相报，永无终止。绝不是我们仁义之师的目的。”
-</h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"></td></tr></table>
+
+ </td> 
+ <div align="center">
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"></td></div>
 抗战中，蒋介石领导的国军，历经10万兵力以上的大型会战22次， 130多万陆军将士壮烈殉国（少将军衔以上的206位）， 4321名空军将 士血洒长空，伤亡总数321万多人。战机损毁2500架，海军舰艇全部打光。 
 <p><p>
  
@@ -148,50 +151,52 @@
 
 
 <div align="center"><h2>5.纽伦堡国际法庭判决纳粹医生</h2><div>
-<table><tr>
-<td  width="450"><h3>
+
+
 1947年8月20日，纽伦 堡国际军事法庭对“纳粹医生” 作出判决，卡尔·勃兰特等七 人获死刑，立即绞决，四人终 身监禁，四人获刑10～20年。
 <p><p>
 被告均为在纳粹卫生部门 或机关工作的官员或高级医务 人员，他们被控犯有违反人道 罪，参与制定和起草对重残病 人和犹太人、吉普赛人的“无 痛致死纲领”，组织和指导利 用集中营囚犯进行活人试验。 
 
 面对控诉，纳粹医生们辩解说他们只是遵从命令。然而“服从命令”的借口，不能开脱他们的滔天罪 恶。1963年，针对纳粹集中营的中下层军官，德国又进行了法兰克福审判， 审判原则很简单：服从上级命令即谋杀共犯。“服从命令”与“未亲手杀人” 不再是洗脱罪责的借口。
-</h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-9.jpg?raw=true">纳粹医生卡尔·勃兰特(两军警间站立者) 被纽伦堡国际法庭判处死刑
-</td></tr></table>
 
+<div align="center"><td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-9.jpg?raw=true">纳粹医生卡尔·勃兰特(两军警间站立者) 被纽伦堡国际法庭判处死刑
+</td><div>
 <div align="center"><h2> 6.刘少奇被批斗</h2><div>
 
-<table><tr>
-<td  width="450"><h3>
+<td >
 1967年8月5日，刘少奇被批斗，后 被押回办公室，他拿出《宪法》抗议说：“我 是国家主席，我也是一个公民，为什么不 让我讲话？宪法保障每一个公民的人身权 利不受侵犯。”然而共产党是凌驾于法律之 上的非法组织，共产党在中国窃取政权后， 发动运动几十场，“斗争对象”从国家主席到普通百姓，从地主、资本家、知识分子、工人、农民、学生到修心向 善的信仰者，都不能幸免。</h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-10.jpg?raw=true"></td></tr></table>
+ </td>
+ 
+ <div align="center"><td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-10.jpg?raw=true"></td><div>
 
 <div align="center"><h2>7.自焚骗局联合国曝光</h2><div>
  
- 
- <table><tr>
-<td  width="450"><h3>
 2001 年 8 月 14 日在联合国 会议上，国际教育发展组织（IED） 就“天安门自焚”事件强烈谴责中共 的国家恐怖主义行为，指出此事 件是中共一手导演的。面对确凿 证据，在场的中共代表没有辩词。 
 <p><p>
 IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 权灾难，远超其他形式的恐怖行 动，国际社会因此将面临大量人 权侵犯案例和难民。中共对法轮 功的迫害就是这样的例子……中共 政府代表企图以诬陷法轮功，为 其国家恐怖行为辩护。我们的调 7 查表明，残害生命的恰恰是中共当局。” 该声明已进入联合国官方记录。 
-</h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-11.jpg?raw=true">国际获奖纪录片《伪火》，曝光了中 共导演的“天安门自焚”假案，江泽民 以此栽赃法轮功，为升级迫害铺路。
-</td></tr>
+
+ <div align="center">
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-11.jpg?raw=true">
+  <br>
+ 国际获奖纪录片《伪火》，曝光了中 共导演的“天安门自焚”假案，江泽民 以此栽赃法轮功，为升级迫害铺路。
+</td><div>
 <br>
 <p>
-<tr><td  width="450"><h3>
-图：荷兰国家电视台2005年3月14 日播出专题片，“天安门自焚”是中共导 演的，所谓自焚者刘春玲，不是被烧死， 而是被军警用重物击中头部而倒地。</h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-12.jpg?raw=true">
-</td></tr>
+
+图：荷兰国家电视台2005年3月14 日播出专题片，“天安门自焚”是中共导 演的，所谓自焚者刘春玲，不是被烧死， 而是被军警用重物击中头部而倒地。
 <br>
-<tr><td  width="450"><h3>
+  <div align="center">
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-12.jpg?raw=true">
+</td><div>
+<br>
+
 图：CCTV镜头显示，所谓的自焚者王 进东浑身烧黑，两腿间装汽油的塑料 雪碧瓶在火中却不变形，不褪色。警 察拎着灭火毯等待，直到他在镜头前 喊完口号才盖灭火毯，分明是在拍戏。
  <p><p>
 “自焚”煽动起民众仇恨，江泽民残酷 迫害信仰“真善忍”的法轮功修炼者， 使中国大陆社会道德沦丧，公义缺失。
-</h3>
- </td> <td align="center" width="450"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-13.jpg?raw=true">
-</td>
-</tr></table>
+  <div align="center">
+<td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-13.jpg?raw=true">
+</td></div>
+
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=880></a><br></div>
 <div align="center">
