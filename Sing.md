@@ -359,6 +359,35 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
+<a name=5><div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-10.jpg?raw=true" width=700></td><br>图：丛大洋与其他法轮功学员冒雨在 中共驻美使馆前炼功，呼吁停止迫害。 （2018年7月22日，华盛顿）
+
+</div>
+
+<a name=5><div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-11.jpg?raw=true" width=700></td><br>
+</div>
+
+法轮功学员丛大洋，当年以东 北三省第一名的成绩考入清华大学 美术学院，毕业后在北京一家香港 装潢公司任设计师。 
+
+1999年迫害发生后，她连续 两天去信访办上访，2002年8月 被绑架，后被非法判重刑10年， 关押在辽宁省女子监狱。 
+
+回想起这场迫害之初，她说：“那 时候气氛非常紧张，铺天盖地的谎 言污蔑法轮功，空气中都充满了恐 怖，感觉很压抑。” 
+
+19年过去了，她看到了人心 的转变：“现在很多人一听法轮功 都说好，在中国都可以面对面发法 轮功真相资料，很多警察也改变了， 日久见人心。风雨中，我见证了法 轮大法的纯正和伟大。”◇
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-12.jpg?raw=true" width=700></td><br>
+</div>
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-13.jpg?raw=true" width=700></td><br>图:28位美国国会议员致信支持 法轮功
+</div>
+
+2018 年 6 月 20 日 上 午， 法轮功学员及支持者在美国首 都华盛顿国会山西草坪集会， 十多位美国国会议员和非政府 组织代表参加，声援法轮功学 员和平反迫害，至少28位美国 国会议员致信支持法轮功。 
+
+
+
 
 
 
