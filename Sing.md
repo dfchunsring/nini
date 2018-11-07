@@ -25,25 +25,23 @@
 
 <table><tr> <td  width="300">
 <a>三.聚焦</a><br></td> 
- <td width="550"><a href="#3">3.大连律师</a><br><p>
+ <td width="550"><a href="#3">3.大连律师 亲历“熬鹰”酷刑</a><br><p>
  
-<a href="#4">4.亲历“熬鹰”酷刑</a><br>
- 
-<a href="#5">5.母被害死 父陷囹圄  女儿在美营救</a><br>
+<a href="#4">4.母被害死 父陷囹圄  女儿在美营救</a><br>
  
  </tr></table>
 
 <table><tr> <td width="300">
 <a>四.封面</a><br></td>
-<td width="550"><a href="#6">6.反迫害19年 磨难中铸就辉煌</a><br><p>
+<td width="550"><a href="#5">5.反迫害19年 磨难中铸就辉煌</a><br><p>
  
 
  
-<a href="#7">7.历经风雨  初心不改</a><br>
+<a href="#6">6.历经风雨  初心不改</a><br>
  
-<a href="#8">8.美国会山前集会  政要声援</a><br>
+<a href="#7">7.美国会山前集会  政要声援</a><br>
 
-<a href="#9">9.看《转法轮》改变人生</a><br></td></tr> 
+<a href="#8">8.看《转法轮》改变人生</a><br></td></tr> 
  </tr></table>
 
 <table><tr> <td  width="300">
