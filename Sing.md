@@ -393,6 +393,36 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 2018 年 6 月 20 日 上 午， 法轮功学员及支持者在美国首 都华盛顿国会山西草坪集会， 十多位美国国会议员和非政府 组织代表参加，声援法轮功学 员和平反迫害，至少28位美国 国会议员致信支持法轮功。 
 
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-14.jpg?raw=true" width=300></td><br>美国国会外交事务委员会资深众议员   伊丽安娜•罗斯-雷婷恩
+</div>
+
+法轮功学员是和平、善良、坚忍的。他们应 该因他们的信仰受到尊重，而不是被迫害。可是 我们看到很多报告，包括美国国务院最新中国人 权报告，法轮功学员遭受着最糟糕的人权侵害， 任意监禁、折磨及残忍的强摘器官行为。
+
+我出生在古巴，它曾是自由的国家。如今被 暴徒、共产主义当局统治。它践踏人权、新闻及 各种自由。当你们说，共产主义的终极目的是毁 灭人类，我从个人的经历知道这是真的。 
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-15.jpg?raw=true" width=300></td><br>美国国会外交事务委员会资深议员  达纳•罗拉巴克
+</div>
+
+我支持你们的（真、善、忍）理念，支持你 们代表的所有。我为和你们站在一起而骄傲
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-16.jpg?raw=true" width=300></td><br>兰托斯基金会代表   艾提克斯·斯威特
+</div>
+
+这一高尚、平和的功法的修炼者们，有着令 人钦羡的品质──友好、善良和高尚的道德。法轮 功修炼者们体现了最美好的人性，表现了宽容、 体谅和忠实于真相的美德。
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-17.jpg?raw=true" width=300></td><br>国防论坛基金会总裁   苏珊·肖尔特
+</div>
+
+你们一直在最前方，不屈于这场迫害和违反 人权的罪恶。你们做的一切不仅是为了法轮功， 更是为了所有在中共集权下受迫害的人们。 
+
+<div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-18.jpg?raw=true" width=880></td><br>图:来自世界56个国家和地区的近万名法轮功学员，到美国首都参加“法轮大法 修炼心得交流会”。（摄于2018年6月21日，华盛顿Capital One Arena室内体育场）
+</div>
+
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
