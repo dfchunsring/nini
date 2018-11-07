@@ -59,8 +59,6 @@
 <table><tr> <td  width="300">
 <a>七.还原 </a><br></td> 
  <td width="550"><a href="#11">11.江泽民集团  迫害动机与手段 </a><br><p>
- 
-<a href="#16">16.</a><br>
  </tr></table>
 
 <table><tr> <td  width="300">
