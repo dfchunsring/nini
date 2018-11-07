@@ -136,7 +136,7 @@
 
 
  <div align="center">
- <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true"></td></div>
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-8.jpg?raw=true" width=480></td></div>
  
 抗战中，蒋介石领导的国军，历经10万兵力以上的大型会战22次， 130多万陆军将士壮烈殉国（少将军衔以上的206位）， 4321名空军将 士血洒长空，伤亡总数321万多人。战机损毁2500架，海军舰艇全部打光。 
 <p><p>
