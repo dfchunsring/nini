@@ -240,15 +240,16 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  官方的套路是：噤声，媒体统一用通稿“给人民一个满意交代”， 找几个小虾米替罪，甚至“反追责”：2010年报道山西毒疫苗事件的《中 国经济时报》总编包月阳被撤职；山东爆出“问题疫苗”后，患儿的 家长易文龙、金玲、史桂芹等6人被以“涉嫌寻衅滋事罪”刑事拘留； 三鹿毒奶粉事件中，受害小孩的父亲赵连海讨说法，被判刑2年…… 有人得出结论：“共产党不是解决问题，而是解决提出问题的人。” 
  
  毒食品药品问题为何屡禁不止？是体制问题，根源在共产党。◇
+ 
+ <a href=#list><h5 align="right">回目錄</h5></a> 
 
  <div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b672.png?raw=true" width=850></td><br>
 </div>
- 
- <a href=#list><h5 align="right">回目錄</h5></a> 
+
  
 <a name=3> <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-3.jpg?raw=true" width=750></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-3.jpg?raw=true" width=650></td><br>
 </div>
  
 <div align="center">
@@ -310,6 +311,28 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 <div align="center">
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-7.jpg?raw=true" width=650></td><br>
+</div>
+
+据明慧网信息统计，2018年上半年，至少430名法轮功学员被中 共非法判刑。已知非法判5～10年重刑的74人。中共法庭勒索罚款、 警察抢劫勒索现金1131800元。 
+
+许多社会精英人士被诬判： 
+原河南项城市农机局局长吴子祥，被非法判刑3年6个月。 <br>
+济南市长清区党校法律研究室主任兼律师刘如平，4年6个月。  <br>
+济南长清区经济和信息化局工程师张承兰，3年6个月。  <br>
+南充市中级法院的法官潘晓江，4年。  <br>
+湖南省化工学校教师胡必佑，1年6个月。  <br>
+四川成都法轮功学员在校研究生张山，2年……  <br>
+
+2018年上半年，律师依据中国法律为法轮功学员做无罪辩护186场， 指出：法轮功修炼者没有破坏任何一部法律的实施，信仰无罪、修炼 法轮功无罪、传播法轮功真相无罪，要求释放被非法关押的法轮功学员。 
+
+律师普遍认为：中共人员对法轮功学员的抓捕、定罪、判刑都是 违法的。存在司法程序和证据造假问题。真正破坏法律实施的是江泽民、 周永康及一些公检法司人员，所有参与的人都将受到追责。 
+
+越来越多的人认清了中共的邪恶，一些法官、检察官、警察做出 正义的选择。2017年至今，至少83 名法轮功学员被无罪释放。◇
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
 
