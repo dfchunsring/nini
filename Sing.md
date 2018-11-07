@@ -11,7 +11,7 @@
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_illust_11_2M.png?raw=true" width=880></a><br></div>
 
- <a href=https://git.io/duun><h6 align="right">首頁</h6></a>
+ <a href=https://git.io/duun><h5 align="right">首頁</h5></a>
 
 <a name=list><b>目錄</b><p>
 
@@ -202,12 +202,14 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <td><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-13.jpg?raw=true">
 </td></div>
 <br>
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=880></a><br></div>
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_138_1M.png?raw=true" width=880></a><br></div>
 
-<a href=#list><h5 align="right">回目錄</h5></a> 
+
 
 <a name=2><h1 align="center">有感于假疫苗 </h1>
 
