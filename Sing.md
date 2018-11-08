@@ -508,12 +508,8 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
 </div>
 
-<a name=10><h2>脑瘫婴儿     奇迹获救</h2>
- 
- <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-26.jpg?raw=true" width=700></td><br>图：1岁多的外孙女彻底康复了
-
-</div>
+<a name=10><div align="center"><h2>脑瘫婴儿     奇迹获救</h2>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-26.jpg?raw=true" width=300></td><br>图：1岁多的外孙女彻底康复了</div>
 
 【明慧网】2015 年 1 月 6 日， 我的大女儿在当地医院进行剖腹产， 因她的子宫和卵巢都有瘤，剖腹产 后大出血，急需输血时才发现血型 不对。原来是医院疏忽，把我女儿 的 Rh 阴性血，化验成了 Rh 阳性血。 女儿这种血型大约一万个人中才有 一个人。
 
