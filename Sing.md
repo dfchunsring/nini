@@ -471,7 +471,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-25.jpg?raw=true" width=500></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/33b2.jpg?raw=true" width=700></td><br>
 </div>
 
 【明慧网】我是一名幼师，以前体弱多病且脾气暴躁，工作能 不干就不干，对幼儿园里的孩子和自己的孩子都没有耐心。1996 年 一个偶然的机会，我看了法轮功的主要著作《转法轮》，开始修炼 法轮功，身体变好了，人也变得温柔善良了。
@@ -505,7 +505,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b-33b2.jpg?raw=true" width=650></td><br>
 </div>
 
 <a name=10><div align="center"><h2>脑瘫婴儿     奇迹获救</h2>
@@ -534,17 +534,21 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-1.jpg?raw=true" width=300></td>
 
 法轮大法也称法轮功，是由李洪志先生于1992年5月传出的佛家 上乘修炼大法，以“真、善、忍”为根本指导，包含五套舒缓的功法动作。 
-
+<br>
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-2.jpg?raw=true" width=150>法轮大法要求修炼者按“真、善、忍”标准提升道 德水准。修炼法轮大法能使人变得诚实，善良，宽容，平和。 </td>
-
+<br>
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-3.jpg?raw=true" width=150> 1998年，北京、武汉、大连及广东省的医学界专家 进行了五次医学调查，结果显示法轮功的祛病健身有效率达98%。  </td>
-
+<br>
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-4.jpg?raw=true" width=150>  1998年下半年，乔石与部分人大离退休老干部对法轮功进 行了数月的调查，得出“法轮功于国于民有百利而无一害”的结论，并于年 底向中央政治局提交了调查报告。 </td>
-
+<br>
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-5.jpg?raw=true" width=150>  法轮大法已弘传100多个国家和地区，受到世界人民的爱 戴和尊敬。李洪志先生和法轮大法因对人类身心健康做出的杰出贡献，获各 国政府褒奖、支持议案和信函3500多项。《转法轮》已经有40种文字版本 并可在法轮大法网站（falundafa.org)上免费下载。◇ </td>
+<br>
 
+ <a href=#list><h5 align="right">回目錄</h5></a> 
 
-
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/8142c-1.png?raw=true" width=850></td><br>
+</div>
 
 
 
