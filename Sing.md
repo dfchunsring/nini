@@ -531,11 +531,12 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 法轮大法弘传，福泽众生。愿世人能够理智地思考，明白法轮 大法的真相，拥有美好未来。◇
 
-<h3>您知道吗？</h3>
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-1.jpg?raw=true" width=300></td>
+ <h3>您知道吗？</h3>
 
 法轮大法也称法轮功，是由李洪志先生于1992年5月传出的佛家 上乘修炼大法，以“真、善、忍”为根本指导，包含五套舒缓的功法动作。 
 
-
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-2.jpg?raw=true" width=100>法轮大法要求修炼者按“真、善、忍”标准提升道 德水准。修炼法轮大法能使人变得诚实，善良，宽容，平和。 </td>
 
 
 
