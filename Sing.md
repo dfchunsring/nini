@@ -532,11 +532,17 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 法轮大法弘传，福泽众生。愿世人能够理智地思考，明白法轮 大法的真相，拥有美好未来。◇
 
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-1.jpg?raw=true" width=300></td>
- <h3>您知道吗？</h3>
 
 法轮大法也称法轮功，是由李洪志先生于1992年5月传出的佛家 上乘修炼大法，以“真、善、忍”为根本指导，包含五套舒缓的功法动作。 
 
- <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-2.jpg?raw=true" width=100>法轮大法要求修炼者按“真、善、忍”标准提升道 德水准。修炼法轮大法能使人变得诚实，善良，宽容，平和。 </td>
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-2.jpg?raw=true" width=150>法轮大法要求修炼者按“真、善、忍”标准提升道 德水准。修炼法轮大法能使人变得诚实，善良，宽容，平和。 </td>
+
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-3.jpg?raw=true" width=150> 1998年，北京、武汉、大连及广东省的医学界专家 进行了五次医学调查，结果显示法轮功的祛病健身有效率达98%。  </td>
+
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-4.jpg?raw=true" width=150>  1998年下半年，乔石与部分人大离退休老干部对法轮功进 行了数月的调查，得出“法轮功于国于民有百利而无一害”的结论，并于年 底向中央政治局提交了调查报告。 </td>
+
+ <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-5.jpg?raw=true" width=150>  法轮大法已弘传100多个国家和地区，受到世界人民的爱 戴和尊敬。李洪志先生和法轮大法因对人类身心健康做出的杰出贡献，获各 国政府褒奖、支持议案和信函3500多项。《转法轮》已经有40种文字版本 并可在法轮大法网站（falundafa.org)上免费下载。◇ </td>
+
 
 
 
