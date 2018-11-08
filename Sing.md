@@ -463,7 +463,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=850></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/33b2.jpg?raw=true" width=750></td><br>
 </div>
 
 <a name=9><div align="center">
@@ -471,7 +471,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/33b2.jpg?raw=true" width=700></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-25.jpg?raw=true" width=700></td><br>
 </div>
 
 【明慧网】我是一名幼师，以前体弱多病且脾气暴躁，工作能 不干就不干，对幼儿园里的孩子和自己的孩子都没有耐心。1996 年 一个偶然的机会，我看了法轮功的主要著作《转法轮》，开始修炼 法轮功，身体变好了，人也变得温柔善良了。
