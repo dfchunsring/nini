@@ -244,11 +244,11 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
  
 <a name=3> <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-3.jpg?raw=true" width=650></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-3.jpg?raw=true" width=550></td><br>
 </div>
  
 <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-2.jpg?raw=true" width=300></td><br>王永航
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-2.jpg?raw=true" width=250></td><br>王永航
 </div>
 
 王永航，中国辽宁省大连市维权律师。因为受 到高智晟律师公开信的影响，而思考法轮功问题及 中国人权现况，自2007年起，为法轮功学员无罪辩 护，2008年先后在海外大纪元网站发表文章，指中 共依据刑法第三百条“利用邪教破坏法律实施罪”给法 轮功学员定罪是违法违宪，并公开上书中央当局及 最高司法机关呼吁纠正错误，2009年被秘密逮捕并 判刑7年，在沈阳第一监狱期间遭酷刑致生命垂危。 2016年出狱。 
@@ -381,7 +381,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
 <a name=7><div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-12.jpg?raw=true" width=700></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-12.jpg?raw=true" width=600></td><br>
 </div>
 
 <div align="center">
