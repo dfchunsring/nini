@@ -537,7 +537,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 <br>
 
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-2.jpg?raw=true" width=100>法轮大法要求修炼者按“真、善、忍”标准提升道 德水准。修炼法轮大法能使人变得诚实，善良，宽容，平和。 </td>
-<br><p>
+<br><p><p>
 
  <td><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-27-3.jpg?raw=true" width=100> 1998年，北京、武汉、大连及广东省的医学界专家 进行了五次医学调查，结果显示法轮功的祛病健身有效率达98%。  </td>
 <br><p>
