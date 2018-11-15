@@ -631,10 +631,11 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <a href=#list><h5 align="right">回目錄</h5></a> 
 
  <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/8142c-1.png?raw=true" width=850></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b_ornament_29_1L.png?raw=true" width=850></td><br>
 </div>
 
-
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-30.jpg?raw=true" width=550></td><br></div>
 
 
 
