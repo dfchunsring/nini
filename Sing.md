@@ -724,7 +724,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 
 通过以下网址，下载电脑版和手机版的翻墙软件。
-
+<table>
 <tr> <td width="300">
 <a>电脑版</a><br>
  <a> https://git.io/fgp <p> </a><br>
@@ -734,7 +734,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <a>  安卓版：</a><br>
  <a> https://git.io/fgma<p> </a>
  <a> https://s3.amazonaws.com/693/um.apk<p></a>
- </tr>
+ </tr></table>
  
 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-34.jpg?raw=true" width=650></td><br> 
