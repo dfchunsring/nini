@@ -719,9 +719,9 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-33-1.jpg?raw=true" width=750></td><br>
 </div>
 
- <div align="center">
+
  <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-33-2.jpg?raw=true" width=650></td><br>
-</div>
+
 
 通过以下网址，下载电脑版和手机版的翻墙软件。
 
@@ -743,5 +743,9 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 欢迎浏览明慧网：www.minghui.org（在中国大陆需翻墙访问）
  
- 
+  <a href=#list><h5 align="right">回目錄</h5></a> 
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b_ornament_29_1L.png?raw=true" width=850></td><br>
+</div>
  
