@@ -95,10 +95,10 @@
 
 尽管“上面让干的”已成为大陆公务员行事的依据， 然而“上面”之上还有法律与天理。执行公务者，不负 上天与良知，才是真正安全的。特别是在中共江泽民集 团发动的迫害法轮大法（法轮功“）真善忍”信仰的运动中， 作为公检法司人员，只有明辨是非，不参与迫害，才会 摆脱替罪羊的命运。◇
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/b_ornament_62_2M.png?raw=true" width=680></a><br></div>
-
-<a href=#list><h5 align="right">回目錄</h5></a> 
 
 <a name=1><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/M-truth-4.jpg?raw=true" width=880></a><br></div>
