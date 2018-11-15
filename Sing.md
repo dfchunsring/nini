@@ -716,7 +716,11 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 </div>
 
  <div align="center">
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-33.jpg?raw=true" width=750></td><br>
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-33-1.jpg?raw=true" width=750></td><br>
+</div>
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-33-2.jpg?raw=true" width=650></td><br>
 </div>
 
 通过以下网址，下载电脑版和手机版的翻墙软件。
