@@ -723,7 +723,7 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 <table><tr> <td width="300">
 <a>电脑版</a><br>
- <a> https://git.io/fgp <p> </a>
+ <a> https://git.io/fgp <p> </a><br>
  <a> https://git.io/umexe <p></a>
  </td>
 <td><br><p>
@@ -732,7 +732,8 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
  <a> https://s3.amazonaws.com/693/um.apk<p></a>
  </tr></table>
  
- <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-34.jpg?raw=true" width=750></td><br> 
+  <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-34.jpg?raw=true" width=650></td><br> </div>
  
  用海外邮箱给freeget.one@gmail.com发邮件，内容与主题任意，不能空白。 10 分钟内即可收到几个“翻墙软件”下载地址，下载后，解压缩即可使用。
 
