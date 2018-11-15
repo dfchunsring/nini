@@ -705,13 +705,33 @@ IED的声明中说：“政府对人 民施行国家恐怖行为所导致的人 
 
 陈女士说：“也有一些大陆客不听真相，拒绝接受真相资料。 其实中国人很善良，只是被中共骗了不知道，所以我们才讲真相。 很多人被共产党毒害得什么都不信，这才是最令人惋惜的。”◇
 
+ <a href=#list><h5 align="right">回目錄</h5></a> 
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/b_ornament_29_1L.png?raw=true" width=850></td><br>
+</div>
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/fg-1.jpg?raw=true" width=650></td><br>
+</div>
+
+ <div align="center">
+ <td align="center"><img src="https://github.com/dfchunsring/nini/blob/master/Sing.img/zx90-33.jpg?raw=true" width=750></td><br>
+</div>
+
+通过以下网址，下载电脑版和手机版的翻墙软件。
+
+                      安卓版： <p> 安卓版： https://git.io/fgma https://s3.amazonaws.com/693/um.apk
 
 
 
+<table><tr> <td width="300">
+<a>电脑版</a><br></td>
+<td width="550"><a> https://git.io/fgp <p> </a><br><p>
+ 
+<a> https://git.io/umexe <p></a><br>
+ 
+<a>7.美国会山前集会  政要声援</a><br>
 
-
-
-
-
-
-
+<a>8.看《转法轮》改变人生</a><br></td></tr> 
+ </tr></table>
