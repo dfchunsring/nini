@@ -1,6 +1,6 @@
  <div align=center><a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
 <hr>
-<h3>精彩视频 请直接点击 http://220.141.119.40</h3></div>
+<h3>精彩视频 请直接点击 http://220.141.119.18</h3></div>
 
 <h1 align="center"><b>一位中国大陆女作家的真实体验</b></h1>
 <table border="0" cellspacing="3" cellpadding="3">
