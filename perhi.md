@@ -1,6 +1,6 @@
 
  <div align=center><a href="https://git.io/ffq"></a>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-1-1.jpg?raw=true" width=880></p><h3>精彩视频 请直接点击 http://220.141.119.18</h3></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-2.jpg?raw=true" width=880></p><h3>精彩视频 请直接点击 http://220.141.119.18</h3></td></div>
 
 <a name=list><b>目錄</b><p>
 <a href="#1">1.迫害法轮功　中共底层官员遭恶报</a><br>
@@ -50,7 +50,7 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_24_2M.png?raw=true" width=880></td>
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-2.jpg?raw=true" width=880></td>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-1-1.jpg?raw=true" width=880></td>
  
  <a name=1><h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
 
