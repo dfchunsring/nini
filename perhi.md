@@ -50,7 +50,8 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_24_2M.png?raw=true" width=880></td>
 
-
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-2.jpg?raw=true" width=880></td>
+ 
  <a name=1><h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
 
 
