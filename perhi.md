@@ -77,61 +77,31 @@
 
 <h2>一、潍坊各地区恶报形式人数统计表</h2><p>
   <div align=center>
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-3.jpg?raw=true" width=880></td>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-3.jpg?raw=true" width=800></td>
 圖1：濰坊各地人員因參與迫害法輪功而遭惡報人數統計</div>
 
   <div align=center>
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-4.jpg?raw=true" width=880></td>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-4.jpg?raw=true" width=800></td>
 圖2：參與迫害法輪功的濰坊人員遭不同類型惡報統計</div>
 
-<table>
+
 <h2>表1：濰坊市一九九九年～二零一八年六月各地區惡報形式人數統計表</h2><p>
-<h3>
- <tr>	
-	<td width=140;>地 區</td>
-	<td width=140;>本 人 遭 惡 報</td>
-	<td width=140;></td>
- 	<td width=140;>禍及家人人數</td>
-	<td width=140;></td><p>
-</tr>	
- </table>
-<table>	 
- <tr>
-	<td width=110;>死亡（癌 症、車禍 猝死等）</td>
-	<td width=110;>惡 疾</td>
-	<td width=110;>被調查、被雙 規、被處分、被逮捕、入獄	</td>
- 	<td width=110;>撤職、辭職、降職 開除、調離、落選 下崗、離婚、破財</td>
-	<td width=110;>骨折、摔傷、被砍、疾病等</td>
- 	<td width=110;>非自報數</td>
-	<td width=110;>死亡、傷殘、其它（患癌、被捕、破財）</td>
-	<td width=110;>神韵交响乐团2016年演出</td>
-</tr>
-	
-<tr>	
-	<td>2018-11月22日感恩节</td>
-	<td>20.00</td>
-	<td>神韵交响乐团2016年演出</td>
- 	<td width=300;>时间</td>
-	<td width=300;>备注</td>
-</tr>	
 
-<tr>	
-	<td>2018-11月23日</td>
-	<td>10.30</td>
-	<td>神韵交响乐团2016年演出</td>
- 	<td width=300;>时间</td>
-	<td width=300;>备注</td>
-</tr>
-<tr>
-	<td>2018-11月25日</td>
-	<td>10.00</td>
-	<td>神韵交响乐团2016年演出</td>
- 	<td width=300;>时间</td>
-	<td width=300;>备注</td>
-</tr></h3>
+  <div align=center>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880>
+<b>註﹕表1中「合計」中的人數中不包括「禍及家人人數」 </td>
+	 
+圖2：參與迫害法輪功的濰坊人員遭不同類型惡報統計</div>
+
+  <div align=center>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-6.jpg?raw=true" width=800>
+<b>圖3：濰坊各部門人員參與迫害法輪功而遭惡報人數統計 </td>
 
 
-</table>
+
+
+
+
 
 
 
