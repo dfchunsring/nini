@@ -85,7 +85,7 @@
 图2：参与迫害法轮功的潍坊人员遭不同类型恶报统计</div>
 
 
-<h2>表1：潍坊市一九九九年～二零一八年六月各地区恶报形式人数统计表</h2><p>
+<h3>表1：潍坊市一九九九年～二零一八年六月各地区恶报形式人数统计表</h3><p>
 
   <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880><p>
@@ -98,13 +98,17 @@
 <p>图3：潍坊各部门人员参与迫害法轮功而遭恶报人数统计</td>
 
 
-<h2>表2：潍坊市一九九九年～二零一八年六月各部门恶报形式统计表</h2><p>
+<h3>表2：潍坊市一九九九年～二零一八年六月各部门恶报形式统计表</h3><p>
 
+  <div align=center>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-7.jpg?raw=true" width=880><p>
+注：表2中“合计”中的人数中不包括“祸及家人人数” </td></div>
 
+<h2>三、潍坊公安系统人员恶报形式统计表</h2>
 
+<h3>表3：潍坊市一九九九年～二零一八年六月公安部门恶报形式人数统计表</h3>
 
-
-
-
-
+  <div align=center>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-8.jpg?raw=true" width=880><p>
+注：表3中“合计”中的人数中不包括“祸及家人人数” </td></div>
 
