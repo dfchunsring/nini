@@ -59,7 +59,7 @@
 
 【明慧网二零一八年七月一日】<p>
 
-前言
+前言<p>
 一、潍坊各地区恶报形式人数统计表<p>
 二、潍坊各部门恶报形式人数统计表<p>
 三、潍坊公安系统人员恶报形式统计表<p>
@@ -110,7 +110,7 @@
 <h3>表2：潍坊市一九九九年～二零一八年六月各部门恶报形式统计表</h3><p>
 
 
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-7.jpg?raw=true" width=880><p>
+ <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-7.jpg?raw=true" width=880><p>
 注：表2中“合计”中的人数中不包括“祸及家人人数” </td>
 
 <h2>三、潍坊公安系统人员恶报形式统计表</h2>
@@ -118,7 +118,7 @@
 <h3>表3：潍坊市一九九九年～二零一八年六月公安部门恶报形式人数统计表</h3>
 
 
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-8.jpg?raw=true" width=880><p>
+ <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-8.jpg?raw=true" width=880><p>
 注：表3中“合计”中的人数中不包括“祸及家人人数” </td>
 <p>
  
