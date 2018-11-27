@@ -77,28 +77,28 @@
 
 <h2>一、潍坊各地区恶报形式人数统计表</h2><p>
   <div align=center>
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-3.jpg?raw=true" width=800></td>
-圖1：濰坊各地人員因參與迫害法輪功而遭惡報人數統計</div>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-3.jpg?raw=true" width=800></td><p>
+图1：潍坊各地人员因参与迫害法轮功而遭恶报人数统计</div>
 
   <div align=center>
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-4.jpg?raw=true" width=800></td>
-圖2：參與迫害法輪功的濰坊人員遭不同類型惡報統計</div>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-4.jpg?raw=true" width=800></td><p>
+图2：参与迫害法轮功的潍坊人员遭不同类型恶报统计</div>
 
 
-<h2>表1：濰坊市一九九九年～二零一八年六月各地區惡報形式人數統計表</h2><p>
-
-  <div align=center>
- <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880>
-<b>註﹕表1中「合計」中的人數中不包括「禍及家人人數」 </td>
-	 
-圖2：參與迫害法輪功的濰坊人員遭不同類型惡報統計</div>
+<h2>表1：潍坊市一九九九年～二零一八年六月各地区恶报形式人数统计表</h2><p>
 
   <div align=center>
+ <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880><p>
+注：表1中“合计”中的人数中不包括“祸及家人人数” </td></div>
+
+<h2>二、潍坊各部门恶报形式人数统计表</h2>
+
+ <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-6.jpg?raw=true" width=800>
-<b>圖3：濰坊各部門人員參與迫害法輪功而遭惡報人數統計 </td>
+<p>图3：潍坊各部门人员参与迫害法轮功而遭恶报人数统计</td>
 
 
-
+<h2>表2：潍坊市一九九九年～二零一八年六月各部门恶报形式统计表</h2><p>
 
 
 
