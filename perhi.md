@@ -5,7 +5,19 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-1-1.jpg?raw=true" width=880></td>
 
-<h1 align="center"><b>迫害法轮功　中共底层官员遭恶报</b></h1>
+<a name=list><b>目錄</b><p>
+<a href="#1">1.迫害法轮功　中共底层官员遭恶报</a><br>
+<a href="#2">2.潍坊中共人员遭恶报（上）</a><br>
+<a href="#3">3.xxxxxxxx</a><br>
+<a href="#4">4.xxxxxxxxxx</a><br>
+<a href="#5">5.xxxxxxxxxxx</a><br>
+<a href="#6">6.xxxxxxxxxx</a><br>
+<a href="#7">7.xxxxxxxxx</a><br>
+<a href="#8">8.xxxxxxxxxx</a><br>
+<a href="#9">9.xxxxxxxxxxx</a><br>
+<a href="#10">10.xxxxxxxxxxx</a><br>
+
+ <a name=1><h1 align="center"><b>迫害法轮功　中共底层官员遭恶报</b></h1>
 
 【明慧网二零一八年九月二十八日】
 
@@ -42,12 +54,10 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_24_2M.png?raw=true" width=880></td>
 
 
-<h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
+ <a name=1><h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
 
 
 【明慧网二零一八年七月一日】<p>
-
-目录：
 
 前言
 一、潍坊各地区恶报形式人数统计表<p>
@@ -57,7 +67,6 @@
 五、潍坊市直属机关高校医院监狱系统恶报案例<p>
 六、各地区恶报案例<p>
 
-前言
 
 潍坊，山东省下辖地级市，古称“潍州”、“潍县”，又名“鸢都”，位于山东半岛的中部，辖四区六市二县。总人口九百三十六点三万人。
 
@@ -95,7 +104,7 @@
 
  <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-6.jpg?raw=true" width=800>
-<p>图3：潍坊各部门人员参与迫害法轮功而遭恶报人数统计</td>
+<p>图3：潍坊各部门人员参与迫害法轮功而遭恶报人数统计</td><div>
 
 
 <h3>表2：潍坊市一九九九年～二零一八年六月各部门恶报形式统计表</h3><p>
