@@ -2,6 +2,12 @@
  <div align=center><a href="https://git.io/ffq"></a>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-2.jpg?raw=true" width=880></p><h3>精彩视频 请直接点击 http://220.141.119.18</h3></td></div>
 
+<td><h2><a href='https://github.com/dfchunsring/wer/blob/master/epgh.md'>【突破封锁看世界】~翻墙软件*免费下载*</a></h2> </td>
+
+<td><h2><a href='https://github.com/dfchunsring/wer/blob/master/phpn.md'>火狐,Chrome浏览器~免费下载~下载浏览器~请先翻墙~</a></h2></td>
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
 <a name=list><b>目錄</b><p>
 <a href="#1">1.迫害法轮功　中共底层官员遭恶报</a><br>
 <a href="#2">2.潍坊中共人员遭恶报（上）</a><br>
@@ -102,7 +108,7 @@
 
  <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-6.jpg?raw=true" width=800>
-<p>图3：潍坊各部门人员参与迫害法轮功而遭恶报人数统计</td><div>
+<p>图3：潍坊各部门人员参与迫害法轮功而遭恶报人数统计</td></div>
 
 
 <h3>表2：潍坊市一九九九年～二零一八年六月各部门恶报形式统计表</h3><p>
@@ -171,7 +177,7 @@
 
 <h3>6、潍坊市中小企业管理局局长马相钦打黑报告得恶报股骨头坏死</h3>
 
-马相钦，原潍坊市中小企业管理局局长，已退休。
+<b>马相钦，原潍坊市中小企业管理局局长，已退休。</b>
 
 二零零零年七月，家住他楼上的法轮功学员正在家与同修交流，被马相钦举报，造成近十名法轮功学员被劳教、刑拘、关押。其中法轮功学员秦永杰被非法劳教三年。
 
