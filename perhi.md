@@ -96,9 +96,9 @@
 
 <h3>表1：潍坊市一九九九年～二零一八年六月各地区恶报形式人数统计表</h3><p>
 
-  <div align=center>
+
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880><p>
-注：表1中“合计”中的人数中不包括“祸及家人人数” </td></div>
+注：表1中“合计”中的人数中不包括“祸及家人人数” </td>
 
 <h2>二、潍坊各部门恶报形式人数统计表</h2>
 
