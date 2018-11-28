@@ -16,12 +16,21 @@
 <a href="#5">四、恶报案例分布特点</a><br>
 <a href="#6">五、潍坊市直属机关高校医院监狱系统恶报案例</a><br>
 <a href="#7">六、各地区恶报案例</a><br>
-<a href="#8">参与迫害法轮功　潍坊中共人员遭恶报（下）</a><br>
-<a href="#9">8.xxxxxxxxxx</a><br>
-<a href="#10">9.xxxxxxxxxxx</a><br>
-<a href="#11">10.xxxxxxxxxxx</a><br>
-
-
+<a href="#8">1、潍城区</a><br>
+<a href="#9">2、坊子区</a><br>
+<a href="#10">3、寒亭区</a><br>
+<a href="#11">4、奎文区</a><br>
+<a href="#12">5、青州市</a><br>
+<a href="#13">参与迫害法轮功　潍坊中共人员遭恶报（下）</a><br>
+<a href="#14">6、諸城市</a><br>
+<a href="#15">7、壽光市</a><br>
+<a href="#16">8、安丘市</a><br>
+<a href="#17">8.xxxxxxxxxx</a><br>
+<a href="#18">9.xxxxxxxxxxx</a><br>
+<a href="#19">10.xxxxxxxxxxx</a><br>
+<a href="#20">8.xxxxxxxxxx</a><br>
+<a href="#21">9.xxxxxxxxxxx</a><br>
+<a href="#22">10.xxxxxxxxxxx</a><br>
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></td>
 
