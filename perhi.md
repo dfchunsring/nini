@@ -227,7 +227,8 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_illust_63_0S.png?raw=true" width=500></td>
+ <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_illust_63_0S.png?raw=true" width=500></td></div>
 
 <a name=6><h2 align="center"><b>六、各地区恶报案例</b></h2>
 
@@ -565,7 +566,10 @@
 
 （待续）
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_0M.png?raw=true" width=500></td>
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+ <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_0M.png?raw=true" width=500></td></div>
 
 
 
