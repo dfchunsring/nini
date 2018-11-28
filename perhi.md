@@ -66,6 +66,8 @@
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880><p>
 注：表1中“合计”中的人数中不包括“祸及家人人数” </td>
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
 <a name=2><h2 align="center"><b>二、潍坊各部门恶报形式人数统计表</b></h2>
 
  <div align=center>
@@ -79,6 +81,8 @@
  <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-7.jpg?raw=true" width=880><p>
 注：表2中“合计”中的人数中不包括“祸及家人人数” </td>
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
 <a name=3><h2 align="center"><b>三、潍坊公安系统人员恶报形式统计表</b></h2>
 
 <h3>表3：潍坊市一九九九年～二零一八年六月公安部门恶报形式人数统计表</h3>
@@ -87,6 +91,8 @@
  <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-8.jpg?raw=true" width=880><p>
 注：表3中“合计”中的人数中不包括“祸及家人人数” </td>
 <p>
+ 
+ <a href=#list><h5 align="right">回目錄</h5></a> 
  
 <a name=4><h2 align="center"><b>四、恶报案例分布特点</b></h2>
 
@@ -100,6 +106,8 @@
 
 4、在公安系统恶报人数中普通警察为33人，占整个地区公安系统恶报总人数的46.4%，接近一半。这说明那些直接参与迫害的基层警察罪恶是比较大的。不管你执行的是哪个上级命令，谁做恶，谁偿还！
 
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
 
 <a name=5><h2 align="center"><b>五、潍坊市直属机关、高校、医院、监狱系统恶报案例</b></h2>
 
@@ -216,6 +224,8 @@
 范玉花是潍坊市峡山区太保庄街道办事处鲍家营村的妇女主任。自九九年七.二零以来与丈夫鲍占果跟随中共邪党迫害法轮功学员，几年来，带领“六一零”邪党人员去法轮功学员家抄家、抓人，监视本村法轮功学员，积极响应邪党的迫害政策，带领太保庄派出所到一法轮功学员家进行非法抄家。当时那名学员家没有人，在范玉花的纵容下，翻墙进入，抢走了四亩地的粮食（玉米），卖钱后，中饱私囊。
 
 法轮功学员多次跟她讲真相，她却不听。二零一一年九月十四日，鲍占果在自家平屋上晒花生时，突然坠落，致使胯骨脱臼，住院治疗几天后，花去四万元钱。
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
 
 <a name=6><h2 align="center"><b>六、各地区恶报案例</b></h2>
 
