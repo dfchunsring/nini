@@ -9,16 +9,17 @@
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
 <a name=list><b>目錄</b><p>
-<a href="#1">一、潍坊各地区恶报形式人数统计表</a><br>
-<a href="#2">二、潍坊各部门恶报形式人数统计表</a><br>
-<a href="#3">三、潍坊公安系统人员恶报形式统计表</a><br>
-<a href="#4">四、恶报案例分布特点</a><br>
-<a href="#5">五、潍坊市直属机关高校医院监狱系统恶报案例</a><br>
-<a href="#6">六、各地区恶报案例</a><br>
-<a href="#7">7.xxxxxxxxx</a><br>
-<a href="#8">8.xxxxxxxxxx</a><br>
-<a href="#9">9.xxxxxxxxxxx</a><br>
-<a href="#10">10.xxxxxxxxxxx</a><br>
+<a href="#1">潍坊中共人员遭恶报（上）</a><br>
+<a href="#2">一、潍坊各地区恶报形式人数统计表</a><br>
+<a href="#3">二、潍坊各部门恶报形式人数统计表</a><br>
+<a href="#4">三、潍坊公安系统人员恶报形式统计表</a><br>
+<a href="#5">四、恶报案例分布特点</a><br>
+<a href="#6">五、潍坊市直属机关高校医院监狱系统恶报案例</a><br>
+<a href="#7">六、各地区恶报案例</a><br>
+<a href="#8">参与迫害法轮功　潍坊中共人员遭恶报（下）</a><br>
+<a href="#9">8.xxxxxxxxxx</a><br>
+<a href="#10">9.xxxxxxxxxxx</a><br>
+<a href="#11">10.xxxxxxxxxxx</a><br>
 
 
 
@@ -26,7 +27,7 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-1-1.jpg?raw=true" width=880></td>
  
- <h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
+ <a name=1><h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
  
 
 【明慧网二零一八年七月一日】<p>
@@ -49,7 +50,7 @@
 
 由于中共的刻意欺骗隐瞒与封锁，实际的恶报人数可能更惊人。
 
- <a name=1><h2 align="center"><b>一、潍坊各地区恶报形式人数统计表</b></h2>
+ <a name=2><h2 align="center"><b>一、潍坊各地区恶报形式人数统计表</b></h2>
  
   <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-3.jpg?raw=true" width=800></td><p>
@@ -68,7 +69,7 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
-<a name=2><h2 align="center"><b>二、潍坊各部门恶报形式人数统计表</b></h2>
+<a name=3><h2 align="center"><b>二、潍坊各部门恶报形式人数统计表</b></h2>
 
  <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-6.jpg?raw=true" width=800>
@@ -83,7 +84,7 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
-<a name=3><h2 align="center"><b>三、潍坊公安系统人员恶报形式统计表</b></h2>
+<a name=4><h2 align="center"><b>三、潍坊公安系统人员恶报形式统计表</b></h2>
 
 <h3>表3：潍坊市一九九九年～二零一八年六月公安部门恶报形式人数统计表</h3>
 
@@ -94,7 +95,7 @@
  
  <a href=#list><h5 align="right">回目錄</h5></a> 
  
-<a name=4><h2 align="center"><b>四、恶报案例分布特点</b></h2>
+<a name=5><h2 align="center"><b>四、恶报案例分布特点</b></h2>
 
 <h3>从以上三个统计表，我们可以看出恶报有以下几个特点：</h3>
 
@@ -109,7 +110,7 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
-<a name=5><h2 align="center"><b>五、潍坊市直属机关、高校、医院、监狱系统恶报案例</b></h2>
+<a name=6><h2 align="center"><b>五、潍坊市直属机关、高校、医院、监狱系统恶报案例</b></h2>
 
 <h3>1、潍坊市市长王伯祥遭恶报患癌症</h3>
 
@@ -230,7 +231,7 @@
  <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_illust_63_0S.png?raw=true" width=500></td></div>
 
-<a name=6><h2 align="center"><b>六、各地区恶报案例</b></h2>
+<a name=7><h2 align="center"><b>六、各地区恶报案例</b></h2>
 
 <h3>1、潍城区</h3>
 
@@ -569,9 +570,11 @@
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
  <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_0M.png?raw=true" width=500></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_0M.png?raw=true" width=880></td></div>
 
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-9.jpg?raw=true" width=880></td>
 
+<a name=8><h2 align="center"><b>参与迫害法轮功　潍坊中共人员遭恶报（下） </b></h2>
 
 
 
