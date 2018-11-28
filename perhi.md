@@ -22,13 +22,12 @@
 
 
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_24_2M.png?raw=true" width=880></td>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></td>
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-1-1.jpg?raw=true" width=880></td>
  
  <h1 align="center"><b>潍坊中共人员遭恶报（上）</b></h1>
  
- <a name=1><h2 align="center"><b>一、潍坊各地区恶报形式人数统计表</b></h2>
 
 【明慧网二零一八年七月一日】<p>
 
@@ -50,7 +49,8 @@
 
 由于中共的刻意欺骗隐瞒与封锁，实际的恶报人数可能更惊人。
 
-<h2>一、潍坊各地区恶报形式人数统计表</h2><p>
+ <a name=1><h2 align="center"><b>一、潍坊各地区恶报形式人数统计表</b></h2>
+ 
   <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-3.jpg?raw=true" width=800></td><p>
 图1：潍坊各地人员因参与迫害法轮功而遭恶报人数统计</div>
@@ -66,7 +66,7 @@
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-5.jpg?raw=true" width=880><p>
 注：表1中“合计”中的人数中不包括“祸及家人人数” </td>
 
-<h2>二、潍坊各部门恶报形式人数统计表</h2>
+<a name=2><h2 align="center"><b>二、潍坊各部门恶报形式人数统计表</b></h2>
 
  <div align=center>
  <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-6.jpg?raw=true" width=800>
@@ -79,7 +79,7 @@
  <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-7.jpg?raw=true" width=880><p>
 注：表2中“合计”中的人数中不包括“祸及家人人数” </td>
 
-<h2>三、潍坊公安系统人员恶报形式统计表</h2>
+<a name=3><h2 align="center"><b>三、潍坊公安系统人员恶报形式统计表</b></h2>
 
 <h3>表3：潍坊市一九九九年～二零一八年六月公安部门恶报形式人数统计表</h3>
 
@@ -88,7 +88,7 @@
 注：表3中“合计”中的人数中不包括“祸及家人人数” </td>
 <p>
  
-<h2>四、恶报案例分布特点</h2>
+<a name=4><h2 align="center"><b>四、恶报案例分布特点</b></h2>
 
 <h3>从以上三个统计表，我们可以看出恶报有以下几个特点：</h3>
 
@@ -101,7 +101,7 @@
 4、在公安系统恶报人数中普通警察为33人，占整个地区公安系统恶报总人数的46.4%，接近一半。这说明那些直接参与迫害的基层警察罪恶是比较大的。不管你执行的是哪个上级命令，谁做恶，谁偿还！
 
 
-<h2>五、潍坊市直属机关、高校、医院、监狱系统恶报案例</h2>
+<a name=5><h2 align="center"><b>五、潍坊市直属机关、高校、医院、监狱系统恶报案例</b></h2>
 
 <h3>1、潍坊市市长王伯祥遭恶报患癌症</h3>
 
@@ -217,7 +217,7 @@
 
 法轮功学员多次跟她讲真相，她却不听。二零一一年九月十四日，鲍占果在自家平屋上晒花生时，突然坠落，致使胯骨脱臼，住院治疗几天后，花去四万元钱。
 
-<h2>六、各地区恶报案例</h2>
+<a name=6><h2 align="center"><b>六、各地区恶报案例</b></h2>
 
 <h3>1、潍城区</h3>
 
