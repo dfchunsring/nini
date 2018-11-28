@@ -250,7 +250,7 @@
 
 <a name=7><h2 align="center"><b>六、各地区恶报案例</b></h2>
 
-<h3>1、潍城区</h3>
+<a name=8><h3><b>1、潍城区</b></h3>
 
 <b>  1）潍城区国保队长王建江遭恶报丧命</b>
 
@@ -358,7 +358,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
-<h3>2、坊子区</h3>
+<a name=9><h3><b>2、坊子区</b></h3>
 
 <b>  1）坊子区公安分局副局长董建华遭恶报车祸夫妻双双被烧焦死亡<b>
 
@@ -406,7 +406,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
-<h3>3、寒亭区</h3>
+<a name=10><h3><b>3、寒亭区</b></h3>
 
 <b>  1）寒亭区公安分局副局长朱刚、科长杨连忠双双癌症死亡</b>
 
@@ -522,7 +522,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
-<h3>4、奎文区</h3>
+<a name=11><h3><b>4、奎文区</b></h3>
 
 <b>  1）奎文区苇湾小区居委会书记高维顺遭报摔断腿殃及老婆患乳腺癌</b>
 
@@ -540,7 +540,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
-<h3>5、青州市</h3>
+<a name=12><h3><b>5、青州市</b></h3>
 
 <b>  1）青州市公安局局长王树国遭报被查处后被免职</b>
 
@@ -609,12 +609,12 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-9.jpg?raw=true" width=880></td>
 
-<a name=8><h2 align="center"><b>参与迫害法轮功　潍坊中共人员遭恶报（下） </b></h2>
+<a name=13><h2 align="center"><b>参与迫害法轮功　潍坊中共人员遭恶报（下） </b></h2>
 
 【明慧网二零一八年七月四日】（接上文）
 
 
-<h3>6、诸城市</h3>
+<a name=14><h3><b>6、诸城市</b></h3>
 
 <b>  1）诸城市原市委、市政府两秘书死于癌症</b>
 
@@ -846,7 +846,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
-<h3>7、寿光市</h3>
+<a name=15><h3><b>7、寿光市</b></h3>
 
 <b>  1）寿光县政法委“六一零办公室”副主任姜冲遭报车祸重伤</b>
 
@@ -1020,7 +1020,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
-<h3>8、安丘市</h3>
+<a name=16><h3><b>8、安丘市</b></h3>
 
 <b>  1）原安丘市政法委副书记兼第一任六一零主任李福金遭恶报被劳教</b>
 
