@@ -78,6 +78,8 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
 <a name=3><h2 align="center"><b>二、潍坊各部门恶报形式人数统计表</b></h2>
 
  <div align=center>
@@ -93,6 +95,8 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
 <a name=4><h2 align="center"><b>三、潍坊公安系统人员恶报形式统计表</b></h2>
 
 <h3>表3：潍坊市一九九九年～二零一八年六月公安部门恶报形式人数统计表</h3>
@@ -102,7 +106,9 @@
 注：表3中“合计”中的人数中不包括“祸及家人人数” </td>
 <p>
  
- <a href=#list><h5 align="right">回目錄</h5></a> 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
  
 <a name=5><h2 align="center"><b>四、恶报案例分布特点</b></h2>
 
@@ -118,6 +124,8 @@
 
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
 <a name=6><h2 align="center"><b>五、潍坊市直属机关、高校、医院、监狱系统恶报案例</b></h2>
 
@@ -346,6 +354,10 @@
 
 郝建强刚升为中共邪党潍坊市潍城区军埠口镇申家管区书记还不到一个月，自己刚买了家用轿车才几天，还没有挂上牌，就遭到恶报。
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
 <h3>2、坊子区</h3>
 
 <b>  1）坊子区公安分局副局长董建华遭恶报车祸夫妻双双被烧焦死亡<b>
@@ -389,6 +401,10 @@
 <b>  7）坊子区居民徐厚明摘取大法真相条幅被碾断手指</b>
 
 徐厚明，男，四十多岁。潍坊市坊子区坊子城镇西五马路居民，受江氏集团谎言的欺骗，在街道居委会的教唆下，多次摘取街道两边的大法真相条幅，干下了助纣为虐的事情，二零零三年年底得恶报，在干活过程中，被机器碾断两根手指。
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
 <h3>3、寒亭区</h3>
 
@@ -502,6 +518,10 @@
 
 潍坊市寒亭区双杨镇孙家村孙兆普攻击、诬蔑大法和法轮功创始人，结果夏收时小麦被敛掉，并殃及邻里。同村居民王法义也因攻击大法和大法的师父，其长子于二零零一年七月中旬出车祸，损失二万余元。
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
 <h3>4、奎文区</h3>
 
 <b>  1）奎文区苇湾小区居委会书记高维顺遭报摔断腿殃及老婆患乳腺癌</b>
@@ -515,6 +535,10 @@
 韩永德，男，时年五十六岁，潍坊奎文区廿里堡街办北王尔庄村书记，此人道德败坏，品质恶劣，当书计时期大搞不正之风，走后门、拉关系，贪得无厌，特别是七二零以来，极端仇视大法，紧随江泽民犯罪集团迫害法轮功学员，亲自编导三句半小品并强迫村民去观看，他们的丑恶表演毒害广大群众，更有甚者召开全村民大会，搞千人签名活动，诬蔑大法和师父。
 
 诬蔑大法天理不容，此凶犯已于二零零二年皇历三月初六下午五时暴死于其一个姘妇家中。
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
 <h3>5、青州市</h3>
 
@@ -577,6 +601,8 @@
 （待续）
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
  <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_0M.png?raw=true" width=880></td></div>
@@ -816,6 +842,10 @@
 
 二零一八年三月二十八日，诸城小水泊村书记刘文岩被公安带走，以贪污为由，其实就是在他任职期间，积极配合六一零、国保、派出所迫害本村两名法轮功学员，一次送法轮功学员到市洗脑班，迫害两个多月，两次拒收，还向学员要饭钱。
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
 <h3>7、寿光市</h3>
 
 <b>  1）寿光县政法委“六一零办公室”副主任姜冲遭报车祸重伤</b>
@@ -985,6 +1015,10 @@
 <b>  37）寿光市马焕煜遭恶报</b>
 
 寿光市迫害大法弟子的马焕煜得恶报，患糖尿病。
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
 
 <h3>8、安丘市</h3>
 
