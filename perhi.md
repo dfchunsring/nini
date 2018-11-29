@@ -180,7 +180,7 @@
 
 黑龙江伊春市金山屯区丰茂林场被迫害得失去双脚的法轮功学员王新春，2008年12月8日晚上7点半，遭丰沟派出所闵长春等一行人绑架。他们没有出示任何手续，撬开王新春的家门，将他劫持到看守所前院。
  <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=400></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=280></td></div>
 <p>
  
 金山屯区公安分局刑警队副队长陶绪伟、奋斗派出所王学刚、刑警队的王海龙、孙立龙、曹万才、王士臣、张立国一帮人，叫王新春脱大衣；不大一会儿，丰沟派出所警察又到王新春家进行非法抄家。
@@ -188,7 +188,7 @@
 王新春的父母也因此受恐吓与威胁，随后陶绪伟等警察一拥而上，踩王新春的头，踩他的脚腿胳膊、身体，把他的胳膊反背过去用手铐反铐，对他身体进行暴力摧残。施暴过程中，王学刚极为残忍、卖力。
 <p>
   <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=400></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=300></td></div>
 <p>
 
 刑警队副队长陶绪伟拳脚一起上，踢打王新春，往他前胸后背塞雪、倒冷水和啤酒，还用双脚踩住他已伤残的双脚伤口处使劲搓，残忍至极；用脚后跟使劲踢其双肩，用4×8×80cm的木方子打王新春的头、脸、肩、后背，还用火烧王新春的脸并不断辱骂。
