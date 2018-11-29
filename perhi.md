@@ -10,7 +10,7 @@
 
 <a name=list><b>目錄</b><p>
 <a href="#1">中共哈尔滨政法委“610”官员厄运缠身</a><br>
-<a href="#2">xxxxxxxxxxx</a><br>
+<a href="#2">警察王学刚车毁人亡 曾酷刑折磨法轮功学员</a><br>
 <a href="#3">xxxxxxxxxxxxxx</a><br>
 <a href="#4">xxxxxxxxxx</a><br>
 <a href="#5">xxxxxxxxxxxx</a><br>
@@ -46,7 +46,7 @@
 <a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=880></td>
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-2-1.jpg?raw=true" width=880></td>
-
+<p>
 【大纪元2018年10月06日讯】2018年9月30日，明慧网发布黑龙江哈尔滨迫害法轮功而遭厄运者的真实案例，至少524人厄运缠身，其中包括多位政法委和“610”系统官员。
 
 他们或车祸横死，或癌症死亡，或离奇暴死，或殃及家人……
@@ -164,7 +164,11 @@
 
 文字整理：叶枫，责任编辑：高静
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
 
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+
+<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=880></td>
 
 
 
