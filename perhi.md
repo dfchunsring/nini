@@ -228,8 +228,9 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
 
-<a name=3> <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-6.jpg?raw=true" width=780></td></div>
- <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-7.jpg?raw=true" width=780></td></div>
+<a name=3><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-6.jpg?raw=true" width=780></td></div>
+ 
+ <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-7.jpg?raw=true" width=580></td></div>
 
 【大纪元2018年09月01日讯】（大纪元记者庄正明综合报导）中共山东省烟台市副市长、市公安局党委书记兼局长聂作坤日前落马。聂作坤曾任安丘市公安局局长、寿光市公安局局长等职，因迫害法轮功学员多次被国际组织通告追查。
 
