@@ -18,7 +18,7 @@
 <a href="#3">烟台公安局长落马 曾对法轮功喊“赶尽杀绝”</a><br>
 <a href="#4">掩盖马三家罪行 辽宁政法书记成植物人</a><br>
 <a href="#5">16年刑期 辽宁前人大常委副主任李文科的厄运</a><br>
-<a href="#6">xxxxxxxxxxxxx</a><br>
+<a href="#6">村干部昔日迫害法轮功学员 今朝凄惨暴死</a><br>
 <a href="#7">xxxxxxxxxx</a><br>
 <a href="#8">xxxxxxxxxxx</a><br>
 <a href="#9">xxxxxxxxxxxx</a><br>
@@ -514,7 +514,52 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
 
-<a name=6><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-18.jpg?raw=true" width=780></td></div>
+<a name=6><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-18-1.jpg?raw=true" width=780></td></div>
+<p>
+ 
+【大纪元2018年04月19日讯】崔素红（音），四十一岁，河北泊头市富镇毛家营村人，富镇镇政府工作人员，其近日在骑电动车上班的路上，遭遇车祸，被大货车撞死。
+
+明慧网报导，崔素红死状奇惨——头、脸被碾掉半个，肠子被轧出来，大腿被车轮胎豁开，肉往外翻。因为赔偿问题没有解决，现在尸体在镇政府里，后事还未处理。崔素红身后留下两个孩子，凄惨可怜之状令人唏嘘。
+
+崔素红是所谓的包村干部，“承包”著富镇周官屯村和韩屯村等村，长期布控、监视法轮功学员和其他所谓“不稳定人员”，并传达中共的迫害任务和政策给村干部，村干部向她汇报情况。所有修炼过法轮功的人员，包括已经放弃修炼多年的人，都成为她监控的对象。
+
+2017年，崔素红带领泊头市610（中共专职迫害法轮功的非法组织）主任高贵启等人，骚扰法轮功学员王小东（王晓东）、王俊杰、张振梅等人。
+
+2018年中共两会期间，崔素红蹲村布控监视，并要求村干部去撕掉王小东的门上带有“法轮大法好”的福字。
+
+报导说，村干部王根长长期执行政策不分对错，他在大年三十晚上，送走别人后，突然无预兆犯病，倒在院内，差点离世，这次他偷着撕坏了福字，也不敢承认。
+
+富镇镇政府从王根长处得知王小东、王俊杰要出门打工，就不惜一切代价火速追回，限制他们外出打工。
+
+<b>事隔一个多月，崔素红就惨遭车祸。</b>
+
+自1999年中共江泽民集团对法轮功学员发起灭绝性迫害以来，数以万计的法轮功学员被非法抓捕、构陷、庭审、判刑，甚至酷刑致死。
+
+同时，明慧网大量披露，中共各级政府中积极参与迫害者大多厄运连连。
+
+厄运表现形式多样：有在事故中身亡，病故；伤残、患癌症及其它重病；有被查处、判刑；有自杀、他杀而亡；有殃及家人的，等等。
+
+据明慧网不完全统计，2017年参与迫害法轮功者伴随厄运的事件涉及25个省、直辖市，当事人有329人，而实际人数远远高于此数。其中，公安系统遭恶报者就有77人，占总人数的40%以上。数据显示，哪里迫害法轮功严重，哪里参与迫害者遭遇厄运的人数就多。
+
+明慧网评论说，天理不以人的意志为转移，法轮大法是教人按“真、善、忍”做好人的佛法，自古迫害修佛修道的人，都不会有善终。#
+
+责任编辑：高静
+
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
+
+<a name=7><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-18-1.jpg?raw=true" width=780></td></div>
+<p>
+
+
+
+
+
+
+
+
 
 
 
