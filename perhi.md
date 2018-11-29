@@ -4,11 +4,13 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
-<td><h2><a href='https://github.com/dfchunsring/wer/blob/master/epgh.md'>【突破封锁看世界】~翻墙软件*免费下载*</a></h2> </td>
+<td><h2><a href='https://git.io/epgh'>【突破封锁看世界】~翻墙软件*免费下载*</a></h2> </td>
 
 <td><h2><a href='https://github.com/dfchunsring/wer/blob/master/phpn.md'>火狐,Chrome浏览器~免费下载~下载浏览器~请先翻墙~</a></h2></td>
 
 <td><h2><a href='https://github.com/bcdz/true01/blob/master/foryou.md'>~大难来时何处藏~</a></h2></td>
+
+<td><h2><a href='https://git.io/duk'>~明真相得福报~</a></h2></td>
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
