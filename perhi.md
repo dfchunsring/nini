@@ -13,7 +13,7 @@
 <a href="#2">警察王学刚车毁人亡 曾酷刑折磨法轮功学员</a><br>
 <a href="#3">烟台公安局长落马 曾对法轮功喊“赶尽杀绝”</a><br>
 <a href="#4">掩盖马三家罪行 辽宁政法书记成植物人</a><br>
-<a href="#5">xxxxxxxxxxxx</a><br>
+<a href="#5">16年刑期 辽宁前人大常委副主任李文科的厄运</a><br>
 <a href="#6">xxxxxxxxxxxxx</a><br>
 <a href="#7">xxxxxxxxxx</a><br>
 <a href="#8">xxxxxxxxxxx</a><br>
@@ -279,7 +279,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
 
-<a name=3><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-8.jpg?raw=true" width=780></td></div>
+<a name=4><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-8.jpg?raw=true" width=780></td></div>
  
  <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-9.jpg?raw=true" width=580></td></div>
 
@@ -373,9 +373,92 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
 
-<a name=3><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-8.jpg?raw=true" width=780></td></div>
+<a name=5><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-11.jpg?raw=true" width=780></td></div>
  
- <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-9.jpg?raw=true" width=580></td></div>
+ 【大纪元2018年10月02日讯】（大纪元记者罗琼综合报导）2018年9月13日，辽宁省前人大常委会副主任李文科被判刑16年。落马前在不同任职期间，李文科积极追随江泽民迫害法轮功。
+ 
+李文科，1956年7月出生。2000年1月至2004年3月，任中共营口市委副书记、代市长、市长；2004年3月至2012年1月，任铁岭市委书记；此后至2017年3月，升任辽宁省人大常委会副主任。 
+ 
+ <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-12.jpg?raw=true" width=580></td></div>
+
+在李文科的不同任职期间，尤其在其任营口市委副书记、市长和铁岭市委书记期间，两市的法轮功学员遭到残酷的迫害。他们被非法抓捕、关押、判刑，被酷刑折磨，甚至被迫害致死。仅在营口一地，在短短的四年里，就有十几位法轮功学员被迫害致死。
+
+在两市时任要职的李文科是迫害法轮功的主要责任人，对法轮功学员遭受迫害负有不可推卸的罪责。
+
+担任辽宁营口市要职期间
+2000年1月至2004年3月，李文科任中共营口市委副书记、代市长、市长。
+
+在李文科四年任职期间，法轮功学员王宝金、苏晶岩、林宝山、李艳华、王福芹、夏春风、符佩玲、于桂英、刘占余、刘来彬、马天庸、鲁桂芳、佟书萍等被迫害致死。
+
+<b>以下列举部分迫害案例：</b>
+
+王宝金被迫害致死
+
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-13.jpg?raw=true" width=480></td></div>
+
+王宝金，营口市法轮功学员，于2002年被绑架到营口市第一看守所。
+
+2009年4月1日，王宝金因喊“法轮大法好”，被强行“关禁闭”严管，遭受酷刑折磨；他绝食抗议无理迫害，被折磨得昏迷不醒，当时没有了血压、几乎摸不出脉搏，被戴着手铐脚镣送进监狱医院。
+
+同年12月9日，王宝金终因身体遭受严重摧残，不幸离世，年仅45岁 。
+
+苏晶岩被打死后扔进水洼
+
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-14.jpg?raw=true" width=480></td></div>
+
+营口大石桥市铁联村法轮功学员苏晶岩，38岁，曾是裁缝个体户。
+
+1999年7月，中共开始迫害法轮功后，苏晶岩被非法关押、拘留在戒毒所、看守所、劳教所。
+
+2001年8月21日，苏晶岩与法轮功学员马素艳、赵桂琴一起到砬山地区发法轮功真相资料。马素艳、赵桂琴被警察非法抓捕，分别被关押在拘留所、看守所，而苏晶岩却死在大石桥市夏屯的一个水洼里。
+
+据内部人士消息：苏晶岩被非法抓进了金桥分局后，警察对她大打出手，迫害致死后将尸体扔进水洼里。
+
+林宝山在被迫害中含冤离世
+
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-15.jpg?raw=true" width=480></td></div>
+
+2000年9月26日，营口盖州市城关办事处新华村法轮功学员林宝山进京为法轮功鸣冤；回家后，当地中共人员经常上门骚扰，林宝山被迫流离在外。
+
+2000年12月23日，林宝山遭盖州市公安局城关分局警察绑架，被非法劳教两年后，被劫到营口教养院迫害。
+
+2002年5月，林宝山逃离教养院，再次被迫流离失所。
+
+2003年12月，四十多岁的林宝山身心受到严重摧残，含冤离世。
+
+李艳华被南楼公安活活打死
+
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-16.jpg?raw=true" width=480></td></div>
+
+2001年2月18日，营口大石桥市南楼经济开发区东江村法轮功学员李艳华女士讲述法轮功真相时，遭不明真相的人构陷，被绑架到南楼经济开发区公安局。
+
+南楼公安局的警察们强行逼问李艳华资料的来源，她坚决不配合。警察们为了请功，用警棍毒打她。她被打得浑身是伤，七窍流血，气绝而死。
+
+<b>多名法轮功学员遭绑架、非法判刑</b>
+
+2001年3月13日，明慧网刊登《辽宁省李艳华老人被恶警活活打死》一文后，大石桥市的相关单位，在上级的指使下，不去查谁打死了李艳华，却四处查找谁照的相，谁上的网，结果绑架了六位法轮功学员，并对他们非法庭审。
+
+2003年2月17日，多名法轮功学员被非法重判，其中王长顺被非法判了10年重刑，路国赞、刘方旭、徐强、伏艳分别被冤判了8年。
+
+后来伏艳走脱，两个月后再次遭绑架。大石桥市法院又追到辽宁省女子监狱，给她非法加刑5年半，对其非法重判共达13年半。
+
+2000年1月至2004年3月，在李文科任营口市市委副书记、代市长、市长期间，该市众多的法轮功学员遭受不同程度的迫害，包括被迫害致残、致死。
+
+<b>据不完全统计，遭受迫害的法轮功学员还有：</b>
+
+朱启民、蒋东凯、司义奎、郭葛、张树鹏、乌时卫、钱乃章、杨国谦、伏强、伏英、杨国志、陆国祝、耿春龙、迟恩红、迟恩刚、毕世军、刘福利、刘福明、刘福忠、张文岭、崔殿明、孙宪会、杨国平、李晓明、纪德光、罗永庚、车宏飞、邢广印、魏立刚、常学会、孙士成、孙文庆、周凤国、陈兴、王震、马素艳、赵桂琴、马素媛、孙颖、王身伦、原玉琴、王丽荣、梁丽蓉、刘玉琢等。
+
+任铁岭市委书记期间
+2004年3月至2012年1月，李文科任铁岭市委书记。
+
+明慧网2016年《辽河的见证》一文披露，据不完全统计，自1999年“720”至2015年年末，16年间29名铁岭市法轮功学员遭冤判；至少3人在李文科任期内被迫害致死。
+
+<b>见下面两迫害案例：</b>
+
+王淑霞入狱当天被打死
+
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-17.jpg?raw=true" width=480></td></div>
+
 
 
 
