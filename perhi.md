@@ -10,7 +10,7 @@
 
 <td><h2><a href='https://github.com/bcdz/true01/blob/master/foryou.md'>~大难来时何处藏~</a></h2></td>
 
-<td><h2><a href='https://git.io/duk'>~明真相得福报~</a></h2></td>
+<td><h2><a href='https://git.io/duk'>明真相得福报~</a></h2></td>
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
