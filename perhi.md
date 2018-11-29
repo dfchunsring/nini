@@ -34,7 +34,6 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></td>
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/32pb-1-1.jpg?raw=true" width=880></td>
  
 前言<p>
 
