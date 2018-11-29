@@ -168,9 +168,25 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_2M.png?raw=true" width=880></p></td>
 
-<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=880></td>
+<a name=2><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=880></td>
 
+【大纪元2018年11月14日讯】2018年11月的一天下午，黑龙江伊春市警察王学刚开着别人的出租车，在丰林高速公路上与对面驶来的一辆大货车相撞，王学刚车毁人亡，死相非常惨，胳膊断在车里。
 
+明慧网报导，王学刚是伊春市奋斗派出所的片警，刑警队队长每次在各派出所抽打手，组成所谓的专案组迫害法轮学员时，王学刚都被选中。
 
+1999年7月，江泽民犯罪集团迫害法轮功后，王学刚通过迫害法轮功学员往上爬，从一个片警爬到刑警队的职位上。伊春市金山屯区很多法轮功学员在被逼供时，王学刚都参与实施酷刑，手段残忍。
 
+中共一开始迫害法轮功后，王学刚就到法轮功学员家里骚扰，看见有法轮功书籍就抢。
+
+黑龙江伊春市金山屯区丰茂林场被迫害得失去双脚的法轮功学员王新春，2008年12月8日晚上7点半，遭丰沟派出所闵长春等一行人绑架。他们没有出示任何手续，撬开王新春的家门，将他劫持到看守所前院。
+
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=880></td>
+<p>
+ 
+金山屯区公安分局刑警队副队长陶绪伟、奋斗派出所王学刚、刑警队的王海龙、孙立龙、曹万才、王士臣、张立国一帮人，叫王新春脱大衣；不大一会儿，丰沟派出所警察又到王新春家进行非法抄家。
+
+王新春的父母也因此受恐吓与威胁，随后陶绪伟等警察一拥而上，踩王新春的头，踩他的脚腿胳膊、身体，把他的胳膊反背过去用手铐反铐，对他身体进行暴力摧残。施暴过程中，王学刚极为残忍、卖力。
+<p>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=880></td>
+<p>
 
