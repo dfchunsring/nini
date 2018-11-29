@@ -49,13 +49,13 @@
 <p>
 【大纪元2018年10月06日讯】2018年9月30日，明慧网发布黑龙江哈尔滨迫害法轮功而遭厄运者的真实案例，至少524人厄运缠身，其中包括多位政法委和“610”系统官员。
 
-<h4>他们或车祸横死，或癌症死亡，或离奇暴死，或殃及家人……</h4>
+<b>他们或车祸横死，或癌症死亡，或离奇暴死，或殃及家人……</b>
 
 “610”办公室是中共专门迫害法轮功的非法机构。1999年6月7日，江泽民宣布成立“中共中央处理法轮功问题领导小组”，下设“中央处理法轮功问题领导小组办公室”，该办公室又因成立时间是6月10日，而叫做“610办公室”。
 
 “610”办公室常设于中共政法委系统之内。中共政法委掌控公安、检察、法院、司法、安全等系统，全面实施江泽民迫害法轮功的政策。政法委和“610”一样，凌驾于一切法律之上。
 
-<h4>以下为哈尔滨政法委和“610”系统官员遭厄运的部分案例：</h4>
+<b>以下为哈尔滨政法委和“610”系统官员遭厄运的部分案例：</b>
 
 <b>哈尔滨松北区政法委书记贾岩被车撞死</b>
 
@@ -369,7 +369,13 @@
 
 责任编辑：高静
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
 
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
+
+<a name=3><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-8.jpg?raw=true" width=780></td></div>
+ 
+ <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-9.jpg?raw=true" width=580></td></div>
 
 
 
