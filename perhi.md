@@ -1,6 +1,9 @@
+<table>
+  <div align=center><a href="https://git.io/ubc"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/wnn/img/ok.jpg?raw=true" width=880></a></p></div>
+</table>
 
- <div align=center><a href="https://git.io/ffq"></a>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-0-1.jpg?raw=true" width=880></p><h3>精彩视频 请直接点击 http://220.141.119.18</h3></td></div>
+ <div align=center>
+<td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-0-1.jpg?raw=true" width=880></p><h3>精彩视频 请直接点击 http://220.141.119.18</h3></td></div>
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
