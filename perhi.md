@@ -32,7 +32,7 @@
 <a href="#21">xxxxxxxxxxx</a><br>
 <a href="#22">xxxxxxxxxxx</a><br>
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></td>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_illust_11_2M.png?raw=true" width=880></td>
 
  
 前言<p>
@@ -166,9 +166,9 @@
 
 <a href=#list><h5 align="right">回目錄</h5></a> 
 
-<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_illust_11_2M.png?raw=true" width=880></p></td>
 
-<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=880></td>
+<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=880></td>
 
 
 
