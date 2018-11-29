@@ -2,11 +2,13 @@
  <div align=center><a href="https://git.io/ffq"></a>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1-1.jpg?raw=true" width=880></p><h3>精彩视频 请直接点击 http://220.141.119.18</h3></td></div>
 
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_1S.png?raw=true" width=880></p></td>
+
 <td><h2><a href='https://github.com/dfchunsring/wer/blob/master/epgh.md'>【突破封锁看世界】~翻墙软件*免费下载*</a></h2> </td>
 
 <td><h2><a href='https://github.com/dfchunsring/wer/blob/master/phpn.md'>火狐,Chrome浏览器~免费下载~下载浏览器~请先翻墙~</a></h2></td>
 
-<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_1M.png?raw=true" width=880></p></td>
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_29_1S.png?raw=true" width=880></p></td>
 
 <a name=list><b>目錄</b><p>
 <a href="#1">中共哈尔滨政法委“610”官员厄运缠身</a><br>
