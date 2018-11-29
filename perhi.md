@@ -43,7 +43,7 @@
 
 隨著中共末日的來臨，盤踞在各地的江派餘孽仍在負隅頑抗，做垂死掙扎，其中就包括臭名昭著的610。二零一八年五月二十九日，美國國務院發佈二零一七年度《國際宗教自由報告》，中國再次被列為「特別關注國」，呼籲國際社會特別關注目前中國大陸的法輪功學員信仰自由狀況。
 
-<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=780></td>
+<a name=1> <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=780></td></div>
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-2-1.jpg?raw=true" width=880></td>
 <p>
@@ -168,7 +168,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_2M.png?raw=true" width=880></p></td>
 
-<a name=2><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=780></td>
+<a name=2> <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=780></td></div>
 
 【大纪元2018年11月14日讯】2018年11月的一天下午，黑龙江伊春市警察王学刚开着别人的出租车，在丰林高速公路上与对面驶来的一辆大货车相撞，王学刚车毁人亡，死相非常惨，胳膊断在车里。
 
@@ -179,14 +179,64 @@
 中共一开始迫害法轮功后，王学刚就到法轮功学员家里骚扰，看见有法轮功书籍就抢。
 
 黑龙江伊春市金山屯区丰茂林场被迫害得失去双脚的法轮功学员王新春，2008年12月8日晚上7点半，遭丰沟派出所闵长春等一行人绑架。他们没有出示任何手续，撬开王新春的家门，将他劫持到看守所前院。
-
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=500></td>
+ <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=400></td></div>
 <p>
  
 金山屯区公安分局刑警队副队长陶绪伟、奋斗派出所王学刚、刑警队的王海龙、孙立龙、曹万才、王士臣、张立国一帮人，叫王新春脱大衣；不大一会儿，丰沟派出所警察又到王新春家进行非法抄家。
 
 王新春的父母也因此受恐吓与威胁，随后陶绪伟等警察一拥而上，踩王新春的头，踩他的脚腿胳膊、身体，把他的胳膊反背过去用手铐反铐，对他身体进行暴力摧残。施暴过程中，王学刚极为残忍、卖力。
 <p>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=500></td>
+  <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=400></td></div>
 <p>
+
+刑警队副队长陶绪伟拳脚一起上，踢打王新春，往他前胸后背塞雪、倒冷水和啤酒，还用双脚踩住他已伤残的双脚伤口处使劲搓，残忍至极；用脚后跟使劲踢其双肩，用4×8×80cm的木方子打王新春的头、脸、肩、后背，还用火烧王新春的脸并不断辱骂。
+
+陶和另一个人拽住王新春被反铐的手使劲拖，一直将他拖到大门口，把门打开冻他，同时还往其前胸后背灌雪水。东北的冬天，冰冷刺骨，王新春的手和脸很快都肿起来了。
+
+第二天晚上，王学刚、张立国和孙立龙对王新春继续施暴。他们边喝酒边对他的头和身体拳打脚踢并辱骂，还往他身上扔东西，用火烧他的脸，用烟头熏烫、烧头发等。
+
+王学刚和张立国给王新春上后背铐，之后又用力猛抬起他的胳膊，连续折磨他三天三夜（这三天公安局副局长丁德志天天去观察情况），致使王新春的脸部变形，后背肿得老高，手腕伤了四处，手背红肿得像馒头，痛苦不堪，生活不能自理。
+
+12月11日早上，王学刚把王新春拉到西林看守所。看守所的人一看他被折磨成这样，拒收，说得给他做身体检查。
+
+警察将王新春拉到西林医院，并没有作检查，只是让医生签了字，就回到看守所。看守所的人一看王新春的残腿还在流着脓水，坚决不收，说把腿治好了再来，否则不收。
+
+2015年法轮功学员依法控告江泽民，法轮功学员张春华、马桂琴、钱志奎相继被“610”绑架到拘留所逼供，最后被王学刚开警车送到伊春乌马河看守所关押了七天。
+
+黑龙江伊春市公检法人员的厄运
+张海涛，金山屯区法院审判长，于2015年1月11日中午11点多和别人出去吃饭，坐在车里正说话时，突然不能说话了，被急忙送进医院，因心梗猝死在医院里。
+
+自1999年中共迫害法轮功后，张海涛参与迫害法轮功学员，非法审判几十名法轮功学员，最高冤判十二年。
+
+李德文，伊春市金山屯区巡警队，于2014年12月突然死亡，死亡原因至今还是个迷。
+
+李德文积极参与迫害法轮功学员。据法轮功学员汪志谦叙述，汪志谦在1999年遭受迫害时，遭李德文、王学刚等一伙警察绑架、折磨。
+
+陶绪伟，黑龙江省伊春市金山屯区公安局刑警队副队长，2014年5月3日下午，遇车祸死亡。
+
+在中共迫害法轮功的十几年里，在伊春市及金山屯政法委和“610”（专门迫害法轮功的非法组织）的直接操控下，陶绪伟积极参与迫害法轮功，表现非常邪恶。
+
+每个遭受到迫害的法轮功学员都向陶绪伟等刑警队警察讲过真相，劝他们不要迫害法轮功学员，否则会遭报应的。陶绪伟总会说“什么时候报应啊！我现在不是好好的嘛，我等著报应，这些年了也没报应”等等。
+
+对参与迫害法轮功的政法委、“610”以及公检法司人员来说，张海涛、李德文、陶绪伟、王学刚的厄运无疑是前车之鉴。#
+
+文字整理：李洁思，责任编辑：高静
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
