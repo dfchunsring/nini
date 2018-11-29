@@ -612,13 +612,15 @@
 
 叶浩说，人做好事会有好结果，做坏事就会有坏结果。人顺天意顺民心，才能有好结果。法轮大法修炼是一种精神信仰，是宪法赋予公民的权利。你利用手中的权力迫害以“真、善、忍”为修炼原则的法轮功，你就违法犯罪了。佛法是天理，是镇压不了的，谁镇压谁就不会有好结果。
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-21.jpg?raw=true" width=780></td></div>
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-21-1.jpg?raw=true" width=780></td></div>
 
 叶浩说，天意不以人的意志转移。中国人历来讲天人合一，人道要与天道相合，才能顺天意，得民心。江泽民发动对法轮功的迫害是逆天叛道，理应受到谴责和审判。现任中共高层应尽快结束对法轮功的无理迫害，还公道给予世间，匡扶人间正义，中国的一切问题就会迎刃而解。
 
 责任编辑：刘毅
 
+<a href=#list><h5 align="right">回目錄</h5></a> 
 
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_0M.png?raw=true" width=880></p></td>
 
 
 
