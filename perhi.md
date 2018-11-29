@@ -43,7 +43,7 @@
 
 隨著中共末日的來臨，盤踞在各地的江派餘孽仍在負隅頑抗，做垂死掙扎，其中就包括臭名昭著的610。二零一八年五月二十九日，美國國務院發佈二零一七年度《國際宗教自由報告》，中國再次被列為「特別關注國」，呼籲國際社會特別關注目前中國大陸的法輪功學員信仰自由狀況。
 
-<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=880></td>
+<a name=1><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=780></td>
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-2-1.jpg?raw=true" width=880></td>
 <p>
@@ -168,7 +168,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_2M.png?raw=true" width=880></p></td>
 
-<a name=2><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=880></td>
+<a name=2><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-3.jpg?raw=true" width=780></td>
 
 【大纪元2018年11月14日讯】2018年11月的一天下午，黑龙江伊春市警察王学刚开着别人的出租车，在丰林高速公路上与对面驶来的一辆大货车相撞，王学刚车毁人亡，死相非常惨，胳膊断在车里。
 
@@ -180,13 +180,13 @@
 
 黑龙江伊春市金山屯区丰茂林场被迫害得失去双脚的法轮功学员王新春，2008年12月8日晚上7点半，遭丰沟派出所闵长春等一行人绑架。他们没有出示任何手续，撬开王新春的家门，将他劫持到看守所前院。
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=880></td>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-4.jpg?raw=true" width=500></td>
 <p>
  
 金山屯区公安分局刑警队副队长陶绪伟、奋斗派出所王学刚、刑警队的王海龙、孙立龙、曹万才、王士臣、张立国一帮人，叫王新春脱大衣；不大一会儿，丰沟派出所警察又到王新春家进行非法抄家。
 
 王新春的父母也因此受恐吓与威胁，随后陶绪伟等警察一拥而上，踩王新春的头，踩他的脚腿胳膊、身体，把他的胳膊反背过去用手铐反铐，对他身体进行暴力摧残。施暴过程中，王学刚极为残忍、卖力。
 <p>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=880></td>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-5.jpg?raw=true" width=500></td>
 <p>
 
