@@ -710,7 +710,7 @@
 
 刘明星，原冠县县委副书记，中共迫害法轮功后，多次在大会上造谣诬蔑法轮功，卖命督导迫害；用冠县人民的血汗钱建立了法制学校，用于关押法轮功学员，致使冠县有上千人被非法绑架、关押，29名在职的法轮功学员被停发工资，多人被非法劳教。
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-27.jpg?raw=true" width=580></td></div>
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-28.jpg?raw=true" width=580></td></div>
 
 刘明星因迫害法轮功得到中共的赏识，升为聊城市民政局局长，正在这时他患了肝癌。2005年10月，他给医生磕头，求医生一定要挽救他的命，说自己有的是钱，不想死。他花了100多万元的医疗费换了两次肝，于2006年5月死去，时年58岁。#
 
