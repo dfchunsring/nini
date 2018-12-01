@@ -32,7 +32,7 @@
 <a href="#10">同是法官 炼法轮功得厚福 迫害法轮功遭厄运</a><br>
 
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_2M.png?raw=true" width=880></td>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
 
  
 前言<p>
@@ -48,6 +48,8 @@
 大纪元特稿评论说，“那些还在跟随中共迫害善良修炼者、尚未意识到严重后果的人，需要赶快警醒，反思发生在身边的恶报实例，并且以实际行动弥补以前犯下的错误。天理在衡定着世间的一切。希望所有的人都能够明辨善恶，看清方向，在这场前所未有的正邪较量中，做出正确的选择。”#
 
 （资料来源：明慧网、大纪元）
+
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
 
 <a name=1> <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-1.jpg?raw=true" width=780></td></div>
 
