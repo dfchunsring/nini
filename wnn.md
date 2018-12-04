@@ -59,10 +59,10 @@
 <h1 align="center"><b>台北国父纪念馆前的真相点（图）</b></h1><p>
 【明慧网二零一八年二月二十六日】时间飞逝，进入了土狗戊戌年，中国新年前的几波寒流，随着除夕而逐渐回暖了。有些中国大陆游客虽因花莲地震而有所迟疑，但仍有为数不少的大陆游客随团或自由行来到台湾度过新年假期。法轮功学员如同三百六十五天的每一天，继续坚持在台北国父纪念馆真相点守候并迎接游客到来，传递法轮功真相与澄清事实，不因假期、气候变化而更改，二零一八年已是第十年了。
  
- <div align=center><IMG SRC="wnn/img/2018-2-25-taibei-zhenxiangdian_01--ss.jpg"width=880></p></div>
+ <div align=center><IMG SRC="wnn/img/2018-2-25-taibei-zhenxiangdian_01--ss.jpg"width=750></p></div>
 <p>
  <div align=center>
-<td align="center"><IMG SRC="wnn/img/2018-2-25-taibei-zhenxiangdian_02--ss.jpg" width=680></td><p>图1～2：台北国父纪念馆前，大陆游客认真阅读法轮功真相展板
+<td align="center"><IMG SRC="wnn/img/2018-2-25-taibei-zhenxiangdian_02--ss.jpg" width=750></td><p>图1～2：台北国父纪念馆前，大陆游客认真阅读法轮功真相展板
 </div>
 
 因为是中国新年假期，景点附近的居民、往来的导游看到法轮功学员还出现在真相点上，竖起了大拇指表示赞许：“过年了，你们还在这里啊？”“法轮功真的了不起！”“辛苦了！”“法轮功就是能坚持！”
