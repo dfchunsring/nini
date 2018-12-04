@@ -218,7 +218,7 @@
 
 
  <div align=center>
-<td align="center"><IMG SRC="wnn/img/2.jpg" width=680></td></b>（土星）活祭婴儿（网络图片）
+<td align="center"><IMG SRC="wnn/img/2.jpg" width=680></td><p>（土星）活祭婴儿（网络图片）
 </div>
 
 为了掩过婴儿在被烧死过程中的哭叫声，在祭活婴的过程中伴有震耳欲聋的喇叭声、鼓声、笛子或其它的音乐等。同时在祭祀土星的过程中，常常伴有吸毒和性狂欢，就是公开的大规模的性乱等等堕落行为。
