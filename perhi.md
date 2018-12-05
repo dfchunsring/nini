@@ -831,7 +831,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-30-1.jpg?raw=true" width=880></td></div>
+<a name=11><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-30-1.jpg?raw=true" width=880></td></div>
 
 <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-31.jpg?raw=true" width=780></td></div>
 
