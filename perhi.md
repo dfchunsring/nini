@@ -855,7 +855,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-32.jpg?raw=true" width=780></td></div>
+<a name=12><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-32.jpg?raw=true" width=780></td></div>
 
 【大纪元2015年02月10日讯】自从九九年七月二十日，中共各级组织都有人在参与迫害法轮功学员。据明慧网报导，在已曝光的超过万例的中共各级官员、警察、普通市民因参与迫害法轮功而遭恶报的事件中，有病死的、被雷劈死的、车祸死的、暴毙的、自杀的、半身不遂的，还有被判刑、撤职的，更有自己作恶殃及家人的。
 
