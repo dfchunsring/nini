@@ -962,7 +962,7 @@
 
 2011年12月23日，甘肃省宁县“610”办公室主任孟兆庆，车祸死亡。当天上午11时，孟兆庆乘坐宁县法院一辆警车，警车行驶时钻入一拖车前底部，油箱顿时起火。大火瞬间吞噬两辆车，孟当场死亡。
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-33.jpg?raw=true" width=680></td></div>
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-33.png?raw=true" width=680></td></div>
 
 2011年10月4日，黑龙江省大庆油田井下作业分公司“610”办公室主任刘杰，因车祸死亡。当天，刘杰骑摩托车和朋友在路上兜风，客车拉着他们的家人，在后面跟着。刘杰骑着摩托车撞上一辆路边的大车。刘杰当时戴着防护帽，穿着防护衣，都是带气囊的现代化防护工具，但其脖子被某物件扎入，刘当场死亡。
 
