@@ -32,9 +32,9 @@
 <a href="#10">同是法官 炼法轮功得厚福 迫害法轮功遭厄运</a><br>
 <a href="#11">罗马时代迫害基督徒 今生仍在偿还业债</a><br>
 <a href="#12">中共基层官员遭恶报实例</a><br>
-<a href="#13">中共严密封锁的信息：死亡职位（上）</a><br>  
-<a href="#14">中共严密封锁的信息：死亡职位（下）</a><br>  
-<a href="#15">残酷迫害法轮功“610”主任王根庭除夕身亡</a><br>   
+<a href="#13">中共严密封锁的信息：死亡职位（上）</a> 
+<a href="#14">中共严密封锁的信息：死亡职位（下）</a>
+<a href="#15">残酷迫害法轮功“610”主任王根庭除夕身亡</a>
   
   
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
