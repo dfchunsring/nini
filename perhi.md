@@ -30,7 +30,6 @@
 <a href="#8">山东冠县参与迫害的官员遭恶报 殃及家人</a><br>
 <a href="#9">石铭：频频恶报该令迫害者们惊醒！</a><br>
 <a href="#10">同是法官 炼法轮功得厚福 迫害法轮功遭厄运</a><br>
- <div align=center><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=650></div>
 <a href="#11">罗马时代迫害基督徒 今生仍在偿还业债</a><br>
 <a href="#12">中共基层官员遭恶报实例</a><br>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
