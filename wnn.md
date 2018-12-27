@@ -1,6 +1,6 @@
  <div align=center><a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
 <hr>
-<h3>精彩视频 请直接点击 http://220.141.121.162</h3></div>
+<h3>精彩视频 请直接点击 http://220.141.121.202</h3></div>
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_91_0M.png?raw=true" width=780></td>
  
