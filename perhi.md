@@ -62,7 +62,7 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
 
-<a name=19> <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-42-1.jpg?raw=true" width=780></td></div>
+<a name=19> <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-42-1.jpg?raw=true" width=880></td></div>
 
 【大纪元2016年12月15日讯】（大纪元记者骆亚报导）近日，湖北参与对法轮功迫害、有洗脑“首席专家”之称的刘红松被曝得喉癌。
 
