@@ -21,6 +21,8 @@
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
 <a name=list><b>目錄</b><p>
+  
+<a href="#20">从罗京恶报 看天理昭彰</a><br>
 <a href="#19">污蔑法轮功的“洗脑专家”患喉癌</a><br>
 <a href="#1">中共哈尔滨政法委“610”官员厄运缠身</a><br>
 <a href="#2">警察王学刚车毁人亡 曾酷刑折磨法轮功学员</a><br>
