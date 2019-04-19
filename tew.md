@@ -15,7 +15,7 @@
 
 <a name=list><b>目錄</b><p>
 <a href="#1">一花一石一诀 天意显现人间</a><br> 
-<a href="#2">张杰连：一石一花一像一诀 天象显玄机</a><br> 
+<a href="#2">天象显玄机</a><br> 
 <a href="#3">不是偶然是天意</a><br> 
    
    <div align=center>
