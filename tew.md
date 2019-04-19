@@ -116,6 +116,24 @@
 <a name=2><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/tew.img/tew-2-2.jpg?raw=true" width=750></a><br></div>
 
+引言
+
+静观当前世事，一石、一花、一像、一诀不可小视，环环相扣，可谓玄机无限。
+
+一石，乃被称为旷古罕见的地质奇观的贵州平塘“藏字石” 。<br> 
+一花，乃是佛经上记述的三千年一开并标志转轮圣王下世度人的优昙婆罗花。<br> 
+一像，乃是辽宁千山风景区的奇峰天成的弥勒大佛之像。<br> 
+一诀，乃可震动生命微观层致人间祈福救生的当下诀语：法轮大法好。<br> 
+
+前三物天成，载持天意金刚，各领四方造化，震动世间表观；后一诀念起，贯通宇宙宏微，以佛法要诀的慈威，创下了无数人间救生的生命奇迹。
+
+感叹人间大势行，有诗为证：
+
+南降亡共石，<br> 
+北现弥勒笑，<br> 
+佛花谕转轮，<br> 
+一诀大法好。<br> 
+
 <div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/tew.img/tew-2.jpg?raw=true" width=750></a><br></div>
 
