@@ -6,7 +6,7 @@
 
 <table>
 <div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/tew.img/-1.jpg?raw=true" width=850></a><br></div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/tew.img/tew-1.jpg?raw=true" width=850></a><br></div>
 </table>
 
 
