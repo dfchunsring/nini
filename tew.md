@@ -399,6 +399,10 @@
 
 佛来了，神到了，由于没有符合人中观念的想像，人就显得异常迟钝。在表现上就有一个明显的特征，就是神下来的时期，对人来说，“不相信” 的奇异之事会越来越多了。毕竟是有福之人才能有生逢救度之盛世的机缘，能感悟到一丝不同寻常的人会越来越多。
 
+探究人间奥秘跟大势行吧！
+
+文：张杰连
+
 <a href=#list><h5 align="right">回目錄</h5></a>
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
@@ -434,9 +438,7 @@
 
 天灭中共的大劫难一定会来到，在神佛的安排下正一步步的逼近。法轮功学员还在顺应天意苦口婆心的讲真相，在急速的从中共手中抢人、救人。人真的应该冷静的反思中共的罪恶，思考一下自己生命的归途。该相信什么，不该相信什么，应该如何选择，都是今天人必须面对又不能回避的问题。
 
-探究人间奥秘跟大势行吧！
 
-文：张杰连
 <a href=#list><h5 align="right">回目錄</h5></a>
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
