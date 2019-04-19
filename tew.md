@@ -174,7 +174,7 @@
 
 这看似仟弱娇小的婆罗花，却有此惊世骇俗的力量。
 
-<b>大法救人与中共恶阻<b>
+<b>大法救人与中共恶阻</b>
 
 “转轮圣王”正在世间洪传大法、救度世人，这是佛花晓谕世人的最大天机。
 
@@ -388,7 +388,7 @@
 
 任何信与不信的表达，与他人毫无关系，唯有自己是最终的享有者或承受者，这是宇宙最公平的得与失的展现，无论贫富贵贱，机会均等。
 
-<b>结语</>
+<b>结语</b>
 
 特殊的历史时期，需要的是更加开放的头脑与更加睁大的双眼。
 
@@ -398,6 +398,11 @@
 
 佛来了，神到了，由于没有符合人中观念的想像，人就显得异常迟钝。在表现上就有一个明显的特征，就是神下来的时期，对人来说，“不相信” 的奇异之事会越来越多了。毕竟是有福之人才能有生逢救度之盛世的机缘，能感悟到一丝不同寻常的人会越来越多。
 
+<a href=#list><h5 align="right">回目錄</h5></a>
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
+<a name=3><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/tew.img/tew-2-2.jpg?raw=true" width=750></a><br></div>
 
 
