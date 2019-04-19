@@ -436,6 +436,7 @@
 
 探究人间奥秘跟大势行吧！
 
+文：张杰连
 <a href=#list><h5 align="right">回目錄</h5></a>
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
