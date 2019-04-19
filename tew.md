@@ -11,7 +11,7 @@
 
 
    <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_62_0M.png?raw=true" width=880></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_62_1M.png?raw=true" width=880></td></div>
 
 <a name=list><b>目錄</b><p>
 <a href="#1">一花一石一诀 天意显现人间</a><br> 
@@ -109,7 +109,9 @@
 
 历史上看，每次人类道德败坏带来大的灾难时，一定有神佛救人的事发生，但不会是超常的，都要符合社会发展与人类生活状态。今天的人类已经处于末法末劫的最后时期，新旧宇宙的交替时期，法轮功在这个关键时期传出不就是在救人吗？中共迫害法轮功，不就是在毁灭人类吗？正邪的界限是分明的，神佛在这善与恶的较量中考验人心。拒绝真相，继续被中共的谎言带动着迫害法轮功，就是不要未来，愿意充当中共的殉葬品；了解真相，作出选择，善待法轮功学员，相信“法轮大法好、真、善、忍好”，广传真相救人，功德无量，生命一定得福报，就能走过天灭中共的大劫难，进入历史的新纪元！
 
-
+<a href=#list><h5 align="right">回目錄</h5></a>
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 
 
