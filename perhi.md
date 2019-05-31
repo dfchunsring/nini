@@ -3,7 +3,7 @@
   <div align=center><a href="https://git.io/ubc"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/wnn/img/ok.jpg?raw=true" width=880></a></p></div>
 </table>
 
- <div align=center><h3>🌼 必看 精彩视频 请直接点击 http://114.43.45.31</h3></div>
+ <div align=center><h3>🌼 必看 精彩视频 请直接点击 http://118.161.140.97</h3></div>
 
  <div align=center>
 <td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-0-1.jpg?raw=true" width=880></p></td></div>
