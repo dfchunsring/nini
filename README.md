@@ -13,7 +13,7 @@
 <a href="#4">美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
 <a href="#5">唐恩：迫害法轮功 美签被严审</a><br>
 <a href="#6">全面收集迫害者名單</a><br>
-<a href="#7">顺应天理而行才是人间正道</a><br>  
+
 
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
@@ -226,11 +226,11 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=6><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-8.jpg?raw=true" width=700></a><br>图为美国国会（李莎／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-8.jpg?raw=true" width=700></a><br></div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>全面收集迫害者名单</a></h2></div>
 
-法轮大法明慧网公告：全面收集迫害者名单
+<h3>法轮大法明慧网公告：全面收集迫害者名单</h3>
 
 林乐予美国华府报道
 2019年06月03日
@@ -239,11 +239,14 @@
 
 海外明慧网5月31日发出通告：“请海内外法轮功学员立即行动起来，更完整地收集、整理和向该网提交迫害者名单，包括迫害者本人及其亲属、子女、资产的信息，以便定位迫害者。”
 
-國際要聞國際
+<h3>國際要聞國際</h3>
+
 美將嚴格執法 拒迫害信仰者入境
+
 法輪大法明慧網公告：全面收集迫害者名單
 
 林樂予美國華府報道
+
 2019年06月03日
  
 在美國的一些宗教及信仰團體日前被告知，美國政府意在更加嚴格地審核簽證申請、對人權及宗教迫害者拒發簽證，包括移民簽證和非移民簽證（如旅遊、探親、商務等），已發簽證者（包括「綠卡」持有者）也可能被拒絕入境。美國國務院官員並告知美國法輪功學員可以提交迫害者名單。
@@ -279,7 +282,7 @@
 法輪大法中心發言人張而平表示：「中國大陸各級政府參與迫害法輪功學員的官員及其他人員，肯定是在這個名單之內；有一些海外的華人，配合中共迫害法輪功，或者是騷擾法輪功，你不要把美國當成中共的後院。這些人也都是迫害者名單範疇之內。所以就是天網恢恢，疏而不漏。」◇
 
 <a name=6><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-9.jpg?raw=true" width=700></a><br>图为美国国会（李莎／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-9.jpg?raw=true" width=700></a><br></div>
 
 <a href=#list><h5 align="right">回目錄</h5></a>
    <div align=center>
