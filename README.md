@@ -12,7 +12,7 @@
 <a href="#3">王友群：必须让中共的人权迫害者付出代价</a><br> 
 <a href="#4">美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
 <a href="#5">唐恩：迫害法轮功 美签被严审</a><br>
-<a href="#6">警世奇观现天意　神佛慈悲救人急</a><br>
+<a href="#6">全面收集迫害者名單</a><br>
 <a href="#7">顺应天理而行才是人间正道</a><br>  
 
    <div align=center>
@@ -191,7 +191,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=5><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-7.jpg?raw=true" width=700></a><br>美国国务院大楼外景。（Samira Bouaou／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-7.jpg?raw=true" width=700></a><br>图为美国国会（李莎／大纪元）</div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>  唐恩：迫害法轮功 美签被严审</a></h2></div>
 
@@ -221,12 +221,69 @@
 
 责任编辑：赵元
 
+<a href=#list><h5 align="right">回目錄</h5></a>
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
+
+<a name=6><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-8.jpg?raw=true" width=700></a><br>图为美国国会（李莎／大纪元）</div>
+ 
+<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>全面收集迫害者名单</a></h2></div>
+
+法轮大法明慧网公告：全面收集迫害者名单
+
+林乐予美国华府报道
+2019年06月03日
+
+在美国的一些宗教及信仰团体日前被告知，美国政府意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，包括移民签证和非移民签证（如旅游、探亲、商务等），已发签证者（包括“绿卡”持有者）也可能被拒绝入境。美国国务院官员并告知美国法轮功学员可以提交迫害者名单。
+
+海外明慧网5月31日发出通告：“请海内外法轮功学员立即行动起来，更完整地收集、整理和向该网提交迫害者名单，包括迫害者本人及其亲属、子女、资产的信息，以便定位迫害者。”
+
+國際要聞國際
+美將嚴格執法 拒迫害信仰者入境
+法輪大法明慧網公告：全面收集迫害者名單
+
+林樂予美國華府報道
+2019年06月03日
+ 
+在美國的一些宗教及信仰團體日前被告知，美國政府意在更加嚴格地審核簽證申請、對人權及宗教迫害者拒發簽證，包括移民簽證和非移民簽證（如旅遊、探親、商務等），已發簽證者（包括「綠卡」持有者）也可能被拒絕入境。美國國務院官員並告知美國法輪功學員可以提交迫害者名單。
+
+海外明慧網5月31日發出通告：「請海內外法輪功學員立即行動起來，更完整地收集、整理和向該網提交迫害者名單，包括迫害者本人及其親屬、子女、資產的信息，以便定位迫害者。」
 
 
+通告並說：「同時，請美國法輪功學員順便收集和提交那些在美國參與中共在海外迫害者的個人信息，比如在神韻藝術團和神韻交響樂團演出劇場外、在法輪大法修煉心得交流會的會場外，在法拉盛、真相點、邪惡網站等場所參與中共海外迫害者。台灣、香港、韓國、西班牙等其它國家或地區的法輪功學員也請提供當地參與中共海外迫害者、其親屬、子女、資產信息。」
 
+根據美國相關法律和總統公告，曾參與以下行為者都屬於被拒簽範疇：
 
+█ 未經法院判決為「死刑」而故意殺人；
 
+█ 施行酷刑和其它殘忍、不人道或有辱人格的待遇或處罰；
 
+█ 沒有刑事指控的拘押；
+
+█ 綁架或秘密拘押而致人失蹤；
+
+█ 其它對生命權、自由權或人身安全權的公然剝奪；
+
+█ 下令、煽動、協助或以其它方式參與群體滅絕。
+
+美國國務院的一位發言人在答覆大紀元記者的郵件中寫道：「美國力求確保，那些侵犯人權的個人無法將美國當作避風港。」
+
+美國華盛頓首府法輪大法學會主席賴善桃博士認為，國際社會對於經貿發展將促進中國人權進步的樂觀判斷已然落空，如今特朗普政府正對全球宗教迫害採取實際措施，尤其是對宗教自由狀況最惡劣的中國。
+
+中共對法輪功的殘酷鎮壓已經持續20年。賴善桃說，法輪功是中國人權最關鍵的問題，法輪功學員受迫害的程度之深、規模之廣，是最嚴重的受害團體之一。美國現在直擊這一核心問題，顯示了特朗普政府捍衛信仰自由的決心。
+
+「美國政府主動地要嚴格執法了，」時事評論員橫河先生說，「以前在申請簽證時，都是由申請人自己回答是否參與迫害信仰，現在美國國務院要求受迫害團體提供信息，這是能夠使美國政府採取行動的證據，說明『這次不僅是說說而已，是真的要執行了』。」◇
+
+法輪功發言人：海外華人騷擾法輪功也屬於迫害者範疇
+法輪大法中心發言人張而平表示：「中國大陸各級政府參與迫害法輪功學員的官員及其他人員，肯定是在這個名單之內；有一些海外的華人，配合中共迫害法輪功，或者是騷擾法輪功，你不要把美國當成中共的後院。這些人也都是迫害者名單範疇之內。所以就是天網恢恢，疏而不漏。」◇
+
+<a name=6><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-9.jpg?raw=true" width=700></a><br>图为美国国会（李莎／大纪元）</div>
+
+<a href=#list><h5 align="right">回目錄</h5></a>
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 
 
