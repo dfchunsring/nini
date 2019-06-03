@@ -6,7 +6,19 @@
   <div align=center>
 <td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/peh-23-2.jpg?raw=true" width=880></p>美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，已得到签证者也可能被拒绝入境。 （Zach Gibson/Getty Images）</td></div>
 
- <div align=center><h2><a href='http://www.epochtimes.com/gb/19/6/2/n11295545.htm'>美将严格执法 拒迫害信仰者入境</a></h2></div>
+<a name=list><b>目錄</b><p>
+<a href="#1">美将严格执法 拒迫害信仰者入境</a><br> 
+<a href="#2">在海外参与迫害法轮功者 美国将调查其恶行</a><br> 
+<a href="#3">不是偶然是天意</a><br> 
+<a href="#4">“垂甘露，润四方”，救度恩山高水长（上）</a><br> 
+<a href="#5">“垂甘露，润四方”，救度恩山高水长（下）</a><br>
+<a href="#6">警世奇观现天意　神佛慈悲救人急</a><br>
+<a href="#7">顺应天理而行才是人间正道</a><br>  
+
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
+
+<a name=1> <div align=center><h2><a href='http://www.epochtimes.com/gb/19/6/2/n11295545.htm'>美将严格执法 拒迫害信仰者入境</a></h2></div>
 
 【大纪元2019年06月02日讯】（大纪元记者林乐予、林澜、萧正忠、林沛芸报导）日前，美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，包括移民签证和非移民签证（如旅游、探亲、商务等），已得到签证者（包括“绿卡”持有者）也可能被拒绝入境。美国国务院官员还告诉美国法轮功学员，可以向他们提交迫害者名单。
 
@@ -51,8 +63,12 @@
 
 责任编辑：玉珍
 
+<a href=#list><h5 align="right">回目錄</h5></a>
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
-
+<a name=2><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/tew.img/tew-2-2.jpg?raw=true" width=750></a><br></div>
 
 
 
