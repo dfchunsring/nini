@@ -287,6 +287,6 @@
 
 <a href=#list><h5 align="right">回目录</h5></a>
    <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_23_2M.png?raw=true" width=880></td></div>
 
 
