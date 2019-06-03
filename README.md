@@ -10,7 +10,7 @@
 <a href="#1">美将严格执法 拒迫害信仰者入境</a><br> 
 <a href="#2">在海外参与迫害法轮功者 美国将调查其恶行</a><br> 
 <a href="#3">王友群：必须让中共的人权迫害者付出代价</a><br> 
-<a href="#4">“垂甘露，润四方”，救度恩山高水长（上）</a><br> 
+<a href="#4">美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
 <a href="#5">“垂甘露，润四方”，救度恩山高水长（下）</a><br>
 <a href="#6">警世奇观现天意　神佛慈悲救人急</a><br>
 <a href="#7">顺应天理而行才是人间正道</a><br>  
@@ -141,9 +141,16 @@
 
 责任编辑：高义
 
+<a href=#list><h5 align="right">回目錄</h5></a>
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
+<a name=4><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-4.jpg?raw=true" width=700></a><br>原中共中央政治局常委、中纪委书记尉健行的撰稿人王友群博士。（作者提供）</div>
  
+ <h2><a href='http://www.epochtimes.com/gb/19/6/2/n11295545.htm'>  美严审迫害者签证 强力执法 捍卫信仰自由</a></h2></div>
  
+
  
  
  
