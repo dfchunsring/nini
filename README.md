@@ -4,7 +4,7 @@
  <div align=center><h3>🌼 必看 精彩视频 请直接点击 http://118.161.140.97</h3></div>
  
   <div align=center>
-<td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/peh-23-1.jpg?raw=true" width=880></p>美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，已得到签证者也可能被拒绝入境。 （Zach Gibson/Getty Images）</td></div>
+<td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-1.png?raw=true" width=880></p>美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，已得到签证者也可能被拒绝入境。 （Zach Gibson/Getty Images）</td></div>
 
 <a name=list><b>目錄</b><p>
 <a href="#1">美将严格执法 拒迫害信仰者入境</a><br> 
