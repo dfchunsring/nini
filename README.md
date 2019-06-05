@@ -7,14 +7,14 @@
 <td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/1603-1.jpg?raw=true" width=880></p>美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，已得到签证者也可能被拒绝入境。 （Zach Gibson/Getty Images）</td></div>
 
 <a name=list><b>目錄</b><p>
-<a href="#1">⭐️美将严格执法 拒迫害信仰者入境</a><br> 
-<a href="#2">⭐️在海外参与迫害法轮功者 美国将调查其恶行</a><br> 
-<a href="#3">⭐️王友群：必须让中共的人权迫害者付出代价</a><br> 
-<a href="#4">⭐️美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
-<a href="#5">⭐️唐恩：迫害法轮功 美签被严审</a><br>
-<a href="#6">⭐️全面收集迫害者名單</a><br>
-<a href="#7">⭐️【新闻看点】美打中共要害 侵犯人权将受制裁</a><br>
-<a href="#8">⭐️华府资深政治家：美不会成为迫害者避风港</a><br>
+<a href="#1">➡️美将严格执法 拒迫害信仰者入境</a><br> 
+<a href="#2">➡️在海外参与迫害法轮功者 美国将调查其恶行</a><br> 
+<a href="#3">➡️王友群：必须让中共的人权迫害者付出代价</a><br> 
+<a href="#4">➡️美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
+<a href="#5">➡️唐恩：迫害法轮功 美签被严审</a><br>
+<a href="#6">➡️全面收集迫害者名單</a><br>
+<a href="#7">➡️【新闻看点】美打中共要害 侵犯人权将受制裁</a><br>
+<a href="#8">➡️华府资深政治家：美不会成为迫害者避风港</a><br>
 
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
