@@ -408,7 +408,7 @@
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
-<a name=8><div align="center">
+<a name=9><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-12.jpg?raw=true" width=750></a><br>2017年川普上任不久，调整美国对外战略，将中共作为美国头号威胁和战略对手。（Olivier Douliery-Pool via Getty Images）</div>
 
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/6/n11237319.htm'>全方位围堵 美国将中共视为头号威胁</a></h2></div>
