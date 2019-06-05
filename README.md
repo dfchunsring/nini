@@ -13,7 +13,7 @@
 <a href="#4">美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
 <a href="#5">唐恩：迫害法轮功 美签被严审</a><br>
 <a href="#6">全面收集迫害者名單</a><br>
-
+<a href="#7">【新闻看点】美打中共要害 侵犯人权将受制裁
 
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
