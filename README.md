@@ -70,7 +70,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=2><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-3.jpg?raw=true" width=700></a><br>2016年5月13日，李华红（中）因为干扰法轮功的活动被纽约警察当场拘捕。 (大纪元)</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-3.jpg?raw=true" width=750></a><br>2016年5月13日，李华红（中）因为干扰法轮功的活动被纽约警察当场拘捕。 (大纪元)</div>
 
 <div align=center><h2><a href='http://www.epochtimes.com/gb/19/6/1/n11293842.htm'>在海外参与迫害法轮功者 美国将调查其恶行 </a></h2></div>
 
@@ -99,7 +99,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=3><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-4.jpg?raw=true" width=700></a><br>原中共中央政治局常委、中纪委书记尉健行的撰稿人王友群博士。（作者提供）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-4.jpg?raw=true" width=750></a><br>原中共中央政治局常委、中纪委书记尉健行的撰稿人王友群博士。（作者提供）</div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/2/n11295545.htm'> 王友群：必须让中共的人权迫害者付出代价</a></h2></div>
 
@@ -148,7 +148,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=4><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-5.jpg?raw=true" width=700></a><br>美国国务院大楼外景。（Samira Bouaou／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-5.jpg?raw=true" width=750></a><br>美国国务院大楼外景。（Samira Bouaou／大纪元）</div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>  美严审迫害者签证 强力执法 捍卫信仰自由</a></h2></div>
  
@@ -162,7 +162,7 @@
 华盛顿DC法轮大法学会主席赖善桃博士认为，经贸发展促进中国人权进步的乐观判断已然落空，如今川普政府正对全球宗教迫害采取实际措施，尤其是对宗教自由状况最恶劣的中共。
  
  <div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-6.jpg?raw=true" width=700></a><br>华盛顿DC法轮大法学会主席赖善桃博士。（李莎／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-6.jpg?raw=true" width=750></a><br>华盛顿DC法轮大法学会主席赖善桃博士。（李莎／大纪元）</div>
 
 美国副总统彭斯去年10月在哈德逊研究所演讲时曾批评，前几届美国政府忽视中共的行动甚至“助长”了中共。他说，“这样的日子结束了。”
 
@@ -193,7 +193,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=5><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-7.jpg?raw=true" width=700></a><br>图为美国国会（李莎／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-7.jpg?raw=true" width=750></a><br>图为美国国会（李莎／大纪元）</div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>  唐恩：迫害法轮功 美签被严审</a></h2></div>
 
@@ -228,17 +228,9 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=6><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-8.jpg?raw=true" width=700></a><br></div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-8.jpg?raw=true" width=750></a><br></div>
  
 <div align="center"> <h2><a href='https://hk.epochtimes.com/news/2019-06-03/10566161'>法轮大法明慧网公告：全面收集迫害者名单</a></h2></div>
-
-林乐予美国华府报道
-2019年06月03日
-
-在美国的一些宗教及信仰团体日前被告知，美国政府意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，包括移民签证和非移民签证（如旅游、探亲、商务等），已发签证者（包括“绿卡”持有者）也可能被拒绝入境。美国国务院官员并告知美国法轮功学员可以提交迫害者名单。
-
-海外明慧网5月31日发出通告：“请海内外法轮功学员立即行动起来，更完整地收集、整理和向该网提交迫害者名单，包括迫害者本人及其亲属、子女、资产的信息，以便定位迫害者。”
-
 
 <h3>国际要闻国际</h3>
 
@@ -291,7 +283,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=7><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen23-10.jpg?raw=true" width=700></a><br>图为美国国务院。（林威／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen23-10.jpg?raw=true" width=750></a><br>图为美国国务院。（林威／大纪元）</div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/1/n11294406.htm?utm_source=dable'>【新闻看点】美打中共要害 侵犯人权将受制裁</a></h2></div>
 
@@ -381,7 +373,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=8><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-11.jpg?raw=true" width=700></a><br>2019年4月25日，纪念“四二五”和平上访二十周年研讨会在美国国会举办。美国国际宗教自由委员会（United States Commission on International Religious Freedom）委员加里·鲍尔（Gary Bauer）在现场发言。（林乐予／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-11.jpg?raw=true" width=750></a><br>2019年4月25日，纪念“四二五”和平上访二十周年研讨会在美国国会举办。美国国际宗教自由委员会（United States Commission on International Religious Freedom）委员加里·鲍尔（Gary Bauer）在现场发言。（林乐予／大纪元）</div>
  
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/1/n11294406.htm?utm_source=dable'>华府资深政治家：美不会成为迫害者避风港</a></h2></div>
 
@@ -417,7 +409,7 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=8><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-12.jpg?raw=true" width=700></a><br>2017年川普上任不久，调整美国对外战略，将中共作为美国头号威胁和战略对手。（Olivier Douliery-Pool via Getty Images）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-12.jpg?raw=true" width=750></a><br>2017年川普上任不久，调整美国对外战略，将中共作为美国头号威胁和战略对手。（Olivier Douliery-Pool via Getty Images）</div>
 
 <div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/6/n11237319.htm'>全方位围堵 美国将中共视为头号威胁</a></h2></div>
 
