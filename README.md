@@ -101,7 +101,7 @@
 <a name=3><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-4.jpg?raw=true" width=750></a><br>原中共中央政治局常委、中纪委书记尉健行的撰稿人王友群博士。（作者提供）</div>
  
-<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/2/n11295545.htm'> 王友群：必须让中共的人权迫害者付出代价</a></h2></div>
+<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/3/6/n11092118.htm'> 王友群：必须让中共的人权迫害者付出代价</a></h2></div>
 
  【大纪元2019年03月06日讯】3月4日，“促进中国宗教信仰自由联盟”在美国首都华盛顿成立。联盟由十多个宗教和人权团体组成，将与国际宗教自由联盟合作，共同阻击中共对信仰自由的迫害。美国国际宗教自由大使布朗巴克，国会及行政当局中国委员会主席麦高文，以及前国会议员沃尔夫到场声援。多位发言者强调，必须让中共的人权迫害者付出代价。
  
@@ -195,7 +195,7 @@
 <a name=5><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-7.jpg?raw=true" width=750></a><br>图为美国国会（李莎／大纪元）</div>
  
-<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>  唐恩：迫害法轮功 美签被严审</a></h2></div>
+<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/30/n11290834.htm'>  唐恩：迫害法轮功 美签被严审</a></h2></div>
 
 【大纪元2019年05月31日讯】美国国务院官员日前告诉一些宗教及信仰团体，将更严格的审核签证申请、对人权及宗教迫害者拒发签证，包括移民签证和非移民签证（如旅游、探亲、商务等），已发签证者（包括“绿卡”持有者）也可能被拒绝入境。
 
@@ -375,7 +375,7 @@
 <a name=8><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-11.jpg?raw=true" width=750></a><br>2019年4月25日，纪念“四二五”和平上访二十周年研讨会在美国国会举办。美国国际宗教自由委员会（United States Commission on International Religious Freedom）委员加里·鲍尔（Gary Bauer）在现场发言。（林乐予／大纪元）</div>
  
-<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/1/n11294406.htm?utm_source=dable'>华府资深政治家：美不会成为迫害者避风港</a></h2></div>
+<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293234.htm'>华府资深政治家：美不会成为迫害者避风港</a></h2></div>
 
 【大纪元2019年06月01日讯】（大纪元记者亦平美国华盛顿DC报导） 日前，美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，包括移民签证和非移民签证（如旅游、探亲、商务等），已得到签证者（包括“绿卡”持有者）也可能被拒绝入境。
 
