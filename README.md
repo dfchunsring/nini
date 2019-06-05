@@ -7,13 +7,14 @@
 <td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/1603-1.jpg?raw=true" width=880></p>美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，已得到签证者也可能被拒绝入境。 （Zach Gibson/Getty Images）</td></div>
 
 <a name=list><b>目錄</b><p>
-<a href="#1">美将严格执法 拒迫害信仰者入境</a><br> 
-<a href="#2">在海外参与迫害法轮功者 美国将调查其恶行</a><br> 
-<a href="#3">王友群：必须让中共的人权迫害者付出代价</a><br> 
-<a href="#4">美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
-<a href="#5">唐恩：迫害法轮功 美签被严审</a><br>
-<a href="#6">全面收集迫害者名單</a><br>
-<a href="#7">【新闻看点】美打中共要害 侵犯人权将受制裁
+<a href="#1">⭐️美将严格执法 拒迫害信仰者入境</a><br> 
+<a href="#2">⭐️在海外参与迫害法轮功者 美国将调查其恶行</a><br> 
+<a href="#3">⭐️王友群：必须让中共的人权迫害者付出代价</a><br> 
+<a href="#4">⭐️美严审迫害者签证 强力执法 捍卫信仰自由</a><br> 
+<a href="#5">⭐️唐恩：迫害法轮功 美签被严审</a><br>
+<a href="#6">⭐️全面收集迫害者名單</a><br>
+<a href="#7">⭐️【新闻看点】美打中共要害 侵犯人权将受制裁</a><br>
+<a href="#8">⭐️华府资深政治家：美不会成为迫害者避风港</a><br>
 
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
@@ -291,9 +292,9 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=7><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-10.jpg?raw=true" width=700></a><br>图为美国国务院。（林威／大纪元）</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen23-10.jpg?raw=true" width=700></a><br>图为美国国务院。（林威／大纪元）</div>
  
-<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>【新闻看点】美打中共要害 侵犯人权将受制裁</a></h2></div>
+<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/1/n11294406.htm?utm_source=dable'>【新闻看点】美打中共要害 侵犯人权将受制裁</a></h2></div>
 
 【大纪元2019年06月02日讯】大家好，欢迎大家关注新闻看点，我是李沐阳。
 
@@ -368,6 +369,44 @@
 大纪元《新闻看点》制作组  #
 
 责任编辑：李昊
+
+
+<a href=#list><h5 align="right">回目录</h5></a>
+
+   <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
+
+<a name=8><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-11.jpg?raw=true" width=700></a><br>2019年4月25日，纪念“四二五”和平上访二十周年研讨会在美国国会举办。美国国际宗教自由委员会（United States Commission on International Religious Freedom）委员加里·鲍尔（Gary Bauer）在现场发言。（林乐予／大纪元）</div>
+ 
+<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/6/1/n11294406.htm?utm_source=dable'>华府资深政治家：美不会成为迫害者避风港</a></h2></div>
+
+【大纪元2019年06月01日讯】（大纪元记者亦平美国华盛顿DC报导） 日前，美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，包括移民签证和非移民签证（如旅游、探亲、商务等），已得到签证者（包括“绿卡”持有者）也可能被拒绝入境。
+
+美国华盛顿政治家加里·鲍尔（Gary Lee Bauer）5月31日在接受大纪元专访时表示，他已经从媒体上看到相关的消息，他很高兴看到川普政府正在朝这个方向发展。
+
+他说，美国这届政府从上到下都在关注着中共对有信仰的民众宣战。美国不会成为迫害者的避风港，任何一个参与施行迫害的人在美国都将付出相应代价。
+
+加里·鲍尔曾在美国里根政府时期担任教育部副部长和美国国内政策首席顾问，2018年5月，他被川普总统任命为美国国际宗教自由委员会（United States Commission on International Religious Freedom）成员。
+
+鲍尔说，很多人一直都在就宗教迫害问题向美国政府谏言，建议把参与实施迫害的具体个人挑出来，对他们进行制裁和其它处罚。
+
+“我非常高兴，美国政府正在朝这个方向发展。”鲍尔说。
+
+加里·鲍尔表示：“美国这届政府从上到下，其中包括国务卿（蓬佩奥）和（美国国际宗教自由大使）布朗贝克（Sam Brownback）参议员以及像我一样关心宗教迫害的人士，都在特别关注着中共对那些有信仰的民众宣战。”
+
+鲍尔说：“我对那些因为信仰仍在中国遭受着迫害的人们深感同情，我想为他们送上鼓励，我知道（他们的处境）一定非常艰难。但是我认为历史教导我们，像中共这样的压迫性政权不可能战胜根植于人类内心的（真理）。我相信，有一天中国人民将摆脱这场压迫。”
+
+5月31日，海外明慧网发出通告： 请海内外法轮功学员立即行动起来，更完整地收集、整理和向该网提交迫害者名单，包括迫害者本人及其亲属、子女、资产的信息，以便定位迫害者。
+
+通告说，同时，请美国法轮功学员顺便收集和提交那些在美国参与中共在海外迫害者的个人信息，比如在神韵艺术团和神韵交响乐团演出剧场外、在法轮大法修炼心得交流会的会场外，在法拉盛、真相点、邪恶网站等场所参与中共海外迫害者。
+
+对此，鲍尔说：“我当然不希望看到美国成为那些在其它国家，无论在中国还是在任何地方实施迫害的人的避风港。因此，我希望任何一个在中国参与过对信仰人士迫害的人都将在美国为这场迫害付出相应代价。”
+
+他认为，美国政府将采取更多行动。#
+
+责任编辑：高静
+
 
 
 
