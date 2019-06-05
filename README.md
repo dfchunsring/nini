@@ -229,9 +229,7 @@
 <a name=6><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-8.jpg?raw=true" width=700></a><br></div>
  
-<div align="center"> <h2><a href='http://www.epochtimes.com/gb/19/5/31/n11293184.htm?utm_source=dable'>全面收集迫害者名单</a></h2></div>
-
-<h3>法轮大法明慧网公告：全面收集迫害者名单</h3>
+<div align="center"> <h2><a href='https://hk.epochtimes.com/news/2019-06-03/10566161'>法轮大法明慧网公告：全面收集迫害者名单</a></h2></div>
 
 林乐予美国华府报道
 2019年06月03日
