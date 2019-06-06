@@ -504,11 +504,11 @@
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
 <a name=10><div align="center">
-<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-13.jpg?raw=true" width=750></a><br>追查迫害法轮功国际组织</div>
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-13.jpg?raw=true" width=850></a><br></div>
 
 <div align="center"> <h2><a href='https://www.zhuichaguoji.org/node/112240'>追查公告 全面收集中共迫害法轮功的犯罪者名单和罪证</a></h2></div>
 
-2019年6月5日
+2019年6月5日<br>
 1999年以来，以原中共党魁江泽民为首的中共犯罪集团操控整个国家机器，包括党、政、军、武警、司法系统、宣传、外交和医疗机构，对上亿法轮功信仰者进行群体灭绝性迫害，持续20了年，至今还在继续。这场迫害，一方面，强制性的洗脑转化，逼迫法轮功学员放弃对法轮大法的信仰，对拒绝放弃信仰者酷刑、虐杀，甚至大量活摘器官进行虐杀。这是群体灭绝罪、反人类罪！另一方面，用对法轮功的仇恨和妖魔化宣传毒害全中国民众。同时，中共还把迫害输出到全世界，用经济手段迫使国际社会对迫害沉默。其真实目的，就是企图摧毁人类的道德良知，进而使人类走向毁灭。
 
 一场人类历史上的最后大审判即将开庭！那就是：针对中共迫害法轮功的群体灭绝罪的大审判！
