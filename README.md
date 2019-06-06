@@ -503,7 +503,7 @@
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td></div>
 
-<a name=9><div align="center">
+<a name=10><div align="center">
 <IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/pen-23-13.jpg?raw=true" width=750></a><br>追查迫害法轮功国际组织</div>
 
 <div align="center"> <h2><a href='https://www.zhuichaguoji.org/node/112240'>追查公告 全面收集中共迫害法轮功的犯罪者名单和罪证</a></h2></div>
