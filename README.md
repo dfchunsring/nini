@@ -533,10 +533,13 @@
 追查迫害法轮功国际组织<br>
 World Organization to Investigate the Persecution of Falun Gong<br>
 
-电话：347-448-5790;传真：347-402-1444  <br>
+电话：347-448-5790;<br>
+传真：347-402-1444  <br>
 邮址：P.O. Box 84，New York, NY, 10116 USA  <br>
 举报信箱：http://www.zhuichaguoji.org/node/3387  <br>
 网址：http://www.zhuichaguoji.org/, http://www.upholdjustice.org/  <br>
+
+
 
 <a href=#list><h5 align="right">回目录</h5></a>
    <div align=center>
