@@ -537,7 +537,7 @@ World Organization to Investigate the Persecution of Falun Gong<br>
 传真：347-402-1444  <br>
 邮址：P.O. Box 84，New York, NY, 10116 USA  <br>
 举报信箱：http://www.zhuichaguoji.org/node/3387  <br>
-网址：http://www.zhuichaguoji.org/, http://www.upholdjustice.org/  <br>
+网址：http://www.zhuichaguoji.org/, <br>  http://www.upholdjustice.org/  <br>
 
 
 
