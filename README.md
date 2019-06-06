@@ -530,15 +530,15 @@
 
 追查国际一如即往，彻底追查迫害法轮功的一切罪行以及相关的机构、组织和个人，无论天涯海角，无论时日长短，必将追查到底，行天理，再现公道，匡扶人间正义。这就是我们对国际社会的承诺，我们永不放弃。
 
-追查迫害法轮功国际组织
-World Organization to Investigate the Persecution of Falun Gong
+追查迫害法轮功国际组织<br>
+World Organization to Investigate the Persecution of Falun Gong<br>
 
-电话：347-448-5790;传真：347-402-1444
-邮址：P.O. Box 84，New York, NY, 10116 USA
-举报信箱：http://www.zhuichaguoji.org/node/3387
-网址：http://www.zhuichaguoji.org/, http://www.upholdjustice.org/
+电话：347-448-5790;传真：347-402-1444  <br>
+邮址：P.O. Box 84，New York, NY, 10116 USA  <br>
+举报信箱：http://www.zhuichaguoji.org/node/3387  <br>
+网址：http://www.zhuichaguoji.org/, http://www.upholdjustice.org/  <br>
 
-
+<a href=#list><h5 align="right">回目录</h5></a>
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_23_2M.png?raw=true" width=880></td></div>
 
