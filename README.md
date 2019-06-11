@@ -4,7 +4,8 @@
  <div align=center><h3>🌼 必看 精彩视频 请直接点击 http://114.37.64.122</h3></div>
  
   <div align=center><h1><b><a href="https://git.io/Ffor">红潮即将倾覆  天之将明</a></b></h1></div> 
- <h2 align="center"> 真相总览➤ https://git.io/01 </h2>  
+ <div align=center><h1><a href="https://git.io/Yange">美将严格执法 拒迫害信仰者入境</a></h1></div>
+ <h2 align="center"> 真相总览➤ https://git.io/01 </h2> 
   <div align=center>
 <td align="center"><a href="https://git.io/ffq"></a><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/1603-1.jpg?raw=true" width=880></p>美国国务院官员告诉一些宗教及信仰团体，他们意在更加严格地审核签证申请、对人权及宗教迫害者拒发签证，已得到签证者也可能被拒绝入境。 （Zach Gibson/Getty Images）</td></div>
 
