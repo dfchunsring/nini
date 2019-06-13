@@ -1,7 +1,7 @@
 
 <div align=center><a href="https://git.io/ffq"><IMG SRC="wnn/img/ok.jpg" width=880></a></p>
 <hr>
-<h3>🌼 必看 精彩视频 请直接点击 http://111.240.64.57</h3></div>
+<h3>🌼 必看 精彩视频 请直接点击 http://118.161.138.80</h3></div>
  <div align=center><h1><b><a href="https://git.io/Ffor">红潮即将倾覆  天之将明</a></b></h1></div> 
  <div align=center><h1><a href="https://git.io/Yange">美将严格执法 拒迫害信仰者入境</a></h1></div>
  <h2 align="center"> 真相总览➤ https://git.io/01 </h2> 
