@@ -9,11 +9,8 @@
  
 <a href=https://git.io/duun><h4 align="right">回首頁</h4></a>
 
-
-
 <img src="https://github.com/dfchunsring/yue/raw/master/img/cmGoal.jpg" width="850">
 
-******
 
 ## 共产主义来自何处？
 ## 为什么宇宙中会冒出个共产党？
@@ -21,7 +18,6 @@
 ## 结局又会怎样？
 ### 对这些根本问题的答案，人们众说纷纭，现在是揭开谜底的时候了。
 
-******
 
 <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=850></td></div>
