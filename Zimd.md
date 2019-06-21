@@ -32,8 +32,8 @@
 </tr>
 	
 <tr>
-	<td><center>👉 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_1.mp4"> 之一：序言.mp4</a> </center></td>
-	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_2s.mp4"> 之二：中心之国.mp4</a></center></td>
+	<td><center>🌕  <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_1.mp4"> 之一：序言.mp4</a> </center></td>
+	<td><center>🌕 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_2s.mp4"> 之二：中心之国.mp4</a></center></td>
 	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_3.mp4"> 之三：马克思魔变.mp4</a></center></td>
 </tr>
 
