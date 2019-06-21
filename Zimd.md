@@ -32,44 +32,58 @@
 </tr>
 	
 <tr>
-	<td><center>🌕  <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_1.mp4"> 之一：序言.mp4</a> </center></td>
-	<td><center>🌕 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_2s.mp4"> 之二：中心之国.mp4</a></center></td>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_3.mp4"> 之三：马克思魔变.mp4</a></center></td>
+	<td><center>➤  <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_1.mp4"> 之一：序言.mp4</a> </center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_2s.mp4"> 之二：中心之国.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_3.mp4"> 之三：马克思魔变.mp4</a></center></td>
 </tr>
 
 <tr>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_4s.mp4">之四：毁灭路线图.mp4</a> </center></td>
-	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_5.mp4">之五：万变不离其邪.mp4</a></center></td>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_6.mp4">之六：甜头和苦头.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_4s.mp4">之四：毁灭路线图.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_5.mp4">之五：万变不离其邪.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_6.mp4">之六：甜头和苦头.mp4</a></center></td>
 </tr>
 
 <tr>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_7.mp4">之七：受苦的还是工农.mp4</a> </center></td>
-	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_8s.mp4">之八：毁灭人类.mp4</a></center></td>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_9s.mp4">之九：共产邪灵一路杀.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_7.mp4">之七：受苦的还是工农.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_8s.mp4">之八：毁灭人类.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_9s.mp4">之九：共产邪灵一路杀.mp4</a></center></td>
 </tr>
 
 <tr>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_10s.mp4">之十：苏俄预演 中共登台.mp4</a> </center></td>
-	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_11s.mp4">之十一：屠杀精英.mp4</a></center></td>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_12.mp4">之十二：破坏自然.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_10s.mp4">之十：苏俄预演 中共登台.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_11s.mp4">之十一：屠杀精英.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_12.mp4">之十二：破坏自然.mp4</a></center></td>
 </tr>
 
 <tr>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_13.mp4">之十三：毁灭文化.mp4</a> </center></td>
-	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_14.mp4">之十四：邪恶之最.mp4</a></center></td>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_15.mp4">之十五：毁人不倦.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_13.mp4">之十三：毁灭文化.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_14.mp4">之十四：邪恶之最.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_15.mp4">之十五：毁人不倦.mp4</a></center></td>
 </tr>
 
 <tr>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_16.mp4">之十六：反神骂祖宗.mp4</a> </center></td>
-	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_17.mp4">之十七：颠倒善恶.mp4</a></center></td>
-	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_18.mp4">之十八：柔性洗脑.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_16.mp4">之十六：反神骂祖宗.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_17.mp4">之十七：颠倒善恶.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_18.mp4">之十八：柔性洗脑.mp4</a></center></td>
 </tr>
 
+<tr>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_19.mp4">之十九：打开地狱门.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_20.mp4">之二十：偷天换日.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_21.mp4">之廿一 神传语言文字.mp4</a></center></td>
+</tr>
 
+<tr>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_22.mp4">之廿二 破坏修炼文化.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_23.mp4">之廿三 富而有德.mp4</a></center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_24.mp4">之廿四 人伦典范.mp4</a></center></td>
+</tr>
 
-
+<tr>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_25.mp4">之廿五 传统艺术颂神.mp4</a> </center></td>
+	<td><center>➤<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_26.mp4">之廿六 中共对抗普世价值.mp4</a></center></td>
+	
+</tr>
 
 </table>
 
