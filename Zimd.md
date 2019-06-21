@@ -36,6 +36,40 @@
 	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_3.mp4"> 之三：马克思魔变.mp4</a></center></td>
 </tr>
 
+<tr>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_4s.mp4">之四：毁灭路线图.mp4</a> </center></td>
+	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_5.mp4">之五：万变不离其邪.mp4</a></center></td>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_6.mp4">之六：甜头和苦头.mp4</a></center></td>
+</tr>
+
+<tr>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_7.mp4">之七：受苦的还是工农.mp4</a> </center></td>
+	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_8s.mp4">之八：毁灭人类.mp4</a></center></td>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_9s.mp4">之九：共产邪灵一路杀.mp4</a></center></td>
+</tr>
+
+<tr>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_10s.mp4">之十：苏俄预演 中共登台.mp4</a> </center></td>
+	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_11s.mp4">之十一：屠杀精英.mp4</a></center></td>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_12.mp4">之十二：破坏自然.mp4</a></center></td>
+</tr>
+
+<tr>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_13.mp4">之十三：毁灭文化.mp4</a> </center></td>
+	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_14.mp4">之十四：邪恶之最.mp4</a></center></td>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_15.mp4">之十五：毁人不倦.mp4</a></center></td>
+</tr>
+
+<tr>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_16.mp4">之十六：反神骂祖宗.mp4</a> </center></td>
+	<td><center>🔶<a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_17.mp4">之十七：颠倒善恶.mp4</a></center></td>
+	<td><center>🔶 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_18.mp4">之十八：柔性洗脑.mp4</a></center></td>
+</tr>
+
+
+
+
+
 </table>
 
 
