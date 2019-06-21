@@ -25,7 +25,11 @@
  <div align=center><h2><b>以下是新唐人电视台根据大纪元原文所录制的视频，方便您聆听或观赏。</b></h2></div> 
 
 <table>
-
+<tr>
+	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN1.epub?raw=true"><img src="https://github.com/dfchunsring/nini/blob/master/Vre-img/Banner.jpeg?raw=true" width="265"  border="0" alt=""></a></td>
+	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN2.epub?raw=true"><img src="https://github.com/dfchunsring/nini/blob/master/Vre-img/Banner.jpeg?raw=true" width="265"  border="0" alt=""></a></td>
+	<td><a href="https://github.com/dfchunsring/yue/blob/master/downdoad/ntdGoalCN3.epub?raw=true"><img src="https://github.com/dfchunsring/nini/blob/master/Vre-img/Banner.jpeg?raw=true" width="265"  border="0" alt=""></a></td>
+</tr>
 <tr>
 	<td><center>🏵 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_1.mp4"> 之一：序言.mp4</a> </center></td>
 	<td><center>🏵 <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_2s.mp4"> 之二：中心之国.mp4</a></center></td>
