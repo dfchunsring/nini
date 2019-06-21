@@ -14,6 +14,15 @@
 
 <img src="https://github.com/dfchunsring/yue/raw/master/img/cmGoal.jpg" width="850">
 
+******
+
+## 共产主义来自何处？
+## 为什么宇宙中会冒出个共产党？
+## 共产主义的本质究竟是什么？
+## 结局又会怎样？
+### 对这些根本问题的答案，人们众说纷纭，现在是揭开谜底的时候了。
+******
+
  <div align=center><h1><b><a href="https://github.com/dfchunsring/nini/blob/master/Zimds/ZJMD_1.mp4">【共产主义的终极目的】之一：序言</a></b></h1></div> 
 【大纪元2019年03月03日讯】五千年历史长河潮起潮落，曾经辉煌的几大文明都灰飞烟灭，而唯独中华文明承传不息。中国曾经创造出万邦来朝的辉煌盛世。曾经辉煌的文明如今却黯然失色，几乎毁于一旦。
 
