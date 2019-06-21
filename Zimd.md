@@ -9,8 +9,7 @@
  
 <a href=https://git.io/duun><h4 align="right">回首頁</h4></a>
 
-<div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=850></td></div>
+
 
 <img src="https://github.com/dfchunsring/yue/raw/master/img/cmGoal.jpg" width="850">
 
@@ -24,6 +23,8 @@
 
 ******
 
+<div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=850></td></div>
 
  <div align=center><h2><b>以下是新唐人电视台根据大纪元原文所录制的视频，方便您聆听或观赏。</b></h2></div> 
 
