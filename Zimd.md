@@ -10,7 +10,7 @@
 <a href=https://git.io/duun><h6 align="right">回首頁</h6></a>
 
 <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/Vre-img/8147c-1.jpg?raw=true" width=850></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=850></td></div>
 
 <img src="https://github.com/dfchunsring/nini/blob/master/Vre-img/Banner.jpeg?raw=true" width="850">
 
