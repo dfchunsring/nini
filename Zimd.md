@@ -448,6 +448,6 @@
 
 
 <div align=center>
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/fgc-2.jpg?raw=true" width=850></td></div>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/fgc-2.jpg?raw=true" width=880></td></div>
 
 
