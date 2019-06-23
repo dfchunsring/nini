@@ -86,7 +86,7 @@
 </tr>
 
 <tr>
-	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_28.mp4">之廿八 把人变非人(上).mp4</a> </center></td>
+	<td><center>➤ <a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_28s.mp4">之廿八 把人变非人(上).mp4</a> </center></td>
 	
 </tr>
 </table>
@@ -449,7 +449,7 @@
 
 因此，在共产中国的物质场中，几乎所有人都浸泡在恨当中，几乎每个人都有一种莫名其妙的恨。只要共产邪灵煽动挑逗，这种喷吐欲出的物质，就会化成巨大负面能量，迅速覆盖人的生存范围。
 
-<div align=center><h1><b><a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_28.mp4"> 【共产主义的终极目的】之廿八 把人变非人(上)</a></b></h1></div> 
+<div align=center><h1><b><a href="https://github.com/dfchunsring/nini/blob/master/Zimds/Zimds_28s.mp4"> 【共产主义的终极目的】之廿八 把人变非人(上)</a></b></h1></div> 
 
 【大纪元2019年06月23日讯】新唐人根据《九评》编辑部同名新书制作的大型系列专题片——《共产主义的终极目的》为您揭示天机。本片内容为：第六章 以“恨”立国 国已不国（上）—— 2. 中共把人变成非人
 
