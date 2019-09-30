@@ -1428,7 +1428,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
-<a name=18><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-40.jpg?raw=true" width=780></td></div>
+<a name=19><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-44.jpg?raw=true" width=780></td></div>
 
 【明慧网二零一九年九月二十六日】近日明慧网刊登了数则因为迫害法轮功而遭恶报的真实案例，发人省思。
 辽宁省锦州市公安局警察张海泉，单位体检时发现舌头异常，赴北京就医当晚即死亡，终年五十八岁；内蒙古莫力达瓦旗尼尔基第一中学语文教师于力明，举报炼法轮功的同事，其后于力明遭了恶报，车祸死亡，死状凄惨；陕西省宝鸡市共党书记田存科，经常在村委会议上诽谤法轮功，多次积极配合“六一零办公室”及国保人员迫害法轮功学员，田存科身体不适，就医检查发现已患胃癌晚期无法治疗，死时仅五十五岁。
