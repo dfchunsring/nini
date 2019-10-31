@@ -138,6 +138,7 @@
 
 而今大法洪传已进入第二十一年，二十一年时间不过是人类历史上的沧桑一秒，然在这历史的一秒内，大法在人间建立了永不磨灭的救世丰碑，这丰碑也给人类的历史标出了最终的高度。站在历史的终点回看，人类文明的开辟就是神迹，今日也将在大法神迹中终结，新的历史纪元也将开始。花开花落，人类文明在这一开一合之间，孕育了一部救世的不朽神话。这部神话是创世主对无量众生的神圣恩典，慈悲的创世主也正在期待每一个世人的觉醒！（文／古镜）
 
+<a href=#list><h5 align="right">回目錄</h5></a>
 
 <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
