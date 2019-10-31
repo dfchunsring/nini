@@ -26,6 +26,17 @@
 <a href="#6">警世奇观现天意　神佛慈悲救人急</a><br>
 <a href="#7">顺应天理而行才是人间正道</a><br>  
  
+    <div align=center>
+<td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
+
+——谨以此文献给法轮功创始人李洪志大师及第十四届法轮大法日
+
+<a name=1><div align="center">
+<IMG SRC="https://github.com/dfchunsring/nini/blob/master/M-truth.img/DF1.jpg" width=750></a><br>法轮功创始人李洪志先生，于1992年5月13日在中国东北的长春市将法轮大法首次向社会传出。（摄影：戴兵/大纪元）</div>
+ 
+
+
+ 
    <div align=center>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/wer/blob/master/img-mf/b_simple_37_3M.png?raw=true" width=880></td></div>
 
