@@ -69,6 +69,17 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
+<td><h2><a href='http://www.epochtimes.com/gb/19/11/4/n11632916.htm'>迫害法轮功 河南信阳市部分官员遭厄运实录</a></h2> </td>
+
+<a name=22><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-45.jpg?raw=true" width=880></td>20年来，河南信阳市各级追随中共、执行迫害法轮功政策的官员恶运缠身。 （Pixabay图片）</div> 
+  
+
+
+
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
+
+<a href=#list><h5 align="right">回目錄</h5></a> 
+
 <a name=21><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-44.jpg?raw=true" width=780></td></div>
 
 【明慧网二零一九年九月二十六日】近日明慧网刊登了数则因为迫害法轮功而遭恶报的真实案例，发人省思。
