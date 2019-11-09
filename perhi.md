@@ -69,7 +69,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
- <div align=center><h2><b><a href="https://git.io/Ffor">迫害法轮功 河南信阳市部分官员遭厄运实录</a></b></h2></div> 
+ <div align=center><h1><b><a href="https://git.io/Ffor">迫害法轮功 河南信阳市部分官员遭厄运实录</a></b></h1></div> 
  
 <a name=22><div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-45.jpg?raw=true" width=880></td>20年来，河南信阳市各级追随中共、执行迫害法轮功政策的官员恶运缠身。 （Pixabay图片）</div> 
   
