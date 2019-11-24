@@ -11,13 +11,13 @@
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
 <table><tr>
-<td><h2><a href='https://git.io/epgh'>【突破封锁看世界】~翻墙软件*免费下载*</a></h2> </td>
+<td><h3><a href='https://git.io/epgh'>【突破封锁看世界】~翻墙软件*免费下载*</a></h3> </td>
 
-<td><h2><a href='https://github.com/dfchunsring/wer/blob/master/phpn.md'>火狐,Chrome浏览器~免费下载~下载浏览器~请先翻墙~</a></h2></td></tr>
+<td><h3><a href='https://github.com/dfchunsring/wer/blob/master/phpn.md'>火狐,Chrome浏览器~免费下载~下载浏览器~请先翻墙~</a></h3></td></tr>
 
-<tr><td><h2><a href='https://git.io/trtptp'>~探尋真相 兼听則明~</a></h2></td>
+<tr><td><h3><a href='https://git.io/trtptp'>~探尋真相 兼听則明~</a></h3></td>
 
-<td><h2><a href='https://git.io/duk'>明真相得福报~</a></h2></td>
+<td><h3><a href='https://git.io/duk'>明真相得福报~</a></h3></td>
 </tr>
 </table>
 
@@ -53,7 +53,7 @@
   
   
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
-
+<td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
  
 前言<p>
 
