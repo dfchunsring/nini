@@ -50,9 +50,7 @@
 <a href="#17">参与迫害法轮功学员的恶警遭恶报</a><br>
 <a href="#18">甄言：诽谤佛法自绝生路</a><br>
 
-  
-  
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
+
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
  
 前言<p>
