@@ -417,13 +417,13 @@
 
 1999年7月20日，中共江泽民集团挟倾国之力对法轮功修炼者发动镇压，成为21世纪当代人权浩劫。持续近二十年的迫害没有将法轮功迫害倒，却有大量参与迫害的中共各级官员、恶人遭到了恶报。明慧网近日系统整理了自迫害开始至2018年7月整整十九年中、该网发表迫害者遭恶报的消息，发现有最少两万人遭到不同形式的恶报，可见善恶有报的天理在彰显，警示世人。
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-47-1.jpg?raw=true" width=680></td></br>中共迫害法轮功十九年，各地遭恶报人数统计。（明慧网）</div> 
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-47-1.jpg?raw=true" width=680></td></br>中共迫害法轮功十九年，各地遭恶报人数统计。（明慧网）</div> <p>
 
 近日明慧网发表《迫害法轮功 19年间逾两万人遭恶报》一文，文中说：“法轮功教导亿万修炼者按照真、善、忍的标准修心向善、并令修炼者祛病健身、道德回升的盛名，却成了中共魔头江泽民的心头之患。此后江泽民加紧部署着铲除法轮功的计划，成立了‘盖世太保’式的专门迫害法轮功的‘610’邪恶组织，等它认为的打压机器都准备就绪，于1999年7月20日开始了一场倾全国之力对法轮功进行的名誉上、经济上、肉体上的全方位的残酷迫害。”
 
 二十年过去了，法轮大法更加洪扬光大，传遍世界120多个国家，中共不但没有将法轮功迫害倒，却使数万参与迫害的中共各级官员、恶人遭到了恶报，下场可悲又可怜。
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-47-2.jpg?raw=true" width=680></td></br>1999-2018年参与迫害法轮功而遭恶报人员所在部门的分类统计。（明慧网）</div> 
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-47-2.jpg?raw=true" width=680></td></br>1999-2018年参与迫害法轮功而遭恶报人员所在部门的分类统计。（明慧网）</div> <p>
 
 <b>十九年迫害 恶报案例涌现</b>
 
@@ -447,7 +447,7 @@
 
 <b>河南警车翻车三庭长惨死</b>
 
-<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-47-3.jpg?raw=true" width=680></td></br>2011年8月14日，鲁山县法院车牌号豫DA378的警车四轮朝天，车头部、侧面严重变形，车上三名庭长杨东升、朱新政、陈东洋当场死亡。（网络图片）</div> 
+<div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-47-3.jpg?raw=true" width=680></td></br>2011年8月14日，鲁山县法院车牌号豫DA378的警车四轮朝天，车头部、侧面严重变形，车上三名庭长杨东升、朱新政、陈东洋当场死亡。（网络图片）</div> <p>
 
 <b>大量冤判、关押法轮功学员的中共检察院、法院、监狱系统，也出现大量恶报实例。</b>
 
