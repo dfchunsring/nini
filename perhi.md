@@ -24,7 +24,7 @@
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_simple_37_2M.png?raw=true" width=880></p></td>
 
 <a name=list><b>目錄</b><p>
-<a href="#24">二十年迫害　二十年惡報</a><br>
+<a href="#25">二十年迫害　二十年惡報</a><br>
 <a href="#24">迫害法轮功 19年间逾两万人遭恶报</a><br>
 <a href="#23">钟声：恶人榜十万清单 善恶有报终有时</a><br>
 <a href="#22">迫害法轮功 河南信阳市部分官员遭厄运实录</a><br>
@@ -71,7 +71,7 @@
 
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
- <a name=24><div align=center><h1><b><a href="https://big5.minghui.org/mh/articles/2019/8/18/B1-391577.html">二十年迫害　二十年恶报</a></b></h1></div> 
+ <a name=25><div align=center><h1><b><a href="https://big5.minghui.org/mh/articles/2019/8/18/B1-391577.html">二十年迫害　二十年恶报</a></b></h1></div> 
 <div align=center><h3><b>河北省承德市参与迫害法轮功中共人员恶报统计</a></b></h3></div> 
 
 <div align=center><td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/peh.img/peh-48.jpg?raw=true" width=880></td>（ 來源：明慧網）</div> <p>
