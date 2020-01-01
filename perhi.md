@@ -2044,7 +2044,7 @@
 
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
 
- <a name=25><div align=center><h1><b><a href="https://big5.minghui.org/mh/articles/2019/8/18/B1-391577.html">公安系统、610人员迫害大法遭恶报</a></b></h1></div> 
+<a name=26><div align=center><h1><b><a href="https://big5.minghui.org/mh/articles/2019/8/18/B1-391577.html">公安系统、610人员迫害大法遭恶报</a></b></h1></div> 
 
 【明慧网2006年8月12日】
 
