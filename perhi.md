@@ -73,8 +73,6 @@
 <td><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_138_1M.png?raw=true" width=880></p></td>
 
 
-<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
-
 <a name=29><div align=center><h1><b><a href="https://git.io/Ffor">被举报者的退路在哪里？</a></b></h1></div> 
 
 【明慧网二零二零年一月三十日】二零二零年一月二十八日，曾经残酷迫害法轮功学员的原河北省鸡泽县公安局长马金献、政法委书记杨芹芳被当地民众举报。（见《河北邯郸市鸡泽县原公安局长马金献、政法委书记杨芹芳被举报》）马金献和杨芹芳是儿女亲家，关系密切，两人都积极追随中共与江泽民流氓集团的迫害政策，在鸡泽县滥用职权，组织、领导、胁迫本县恶警迫害当地的法轮功学员。
@@ -137,7 +135,10 @@
 善恶必报。二零二零年，我们看到中共邪党正在向地狱裸奔。天网恢恢，疏而不漏，上天在均衡着这一切。对于那些因为参与迫害法轮功而被举报的中共政法委人员而言，以后只要出国就可能会四处碰壁，如不及时悔改，终将罪责难逃，恶报上身。那么，退路在哪里昵？只有马上醒悟，立即停止作恶，将功赎罪，才可挽回即将面临的悲惨下场。如不弃暗投明，万事休也！
 
 文: 子斯
+
 <a href=#list><h5 align="right">回目錄</h5></a> 
+
+<td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/fnc-perhi.img/b_ornament_149_1M.png?raw=true" width=880></td>
 <td align="center"><IMG SRC="https://github.com/dfchunsring/nini/blob/master/perhi.img/fawang2.jpg" width=880></td>
 
 <a name=28><div align=center><h2><b><a href="http://www.fawanghuihui.org/gb/retribution/58705/">无处躲藏　原中共密山市委副书记李连春回国投案</a></b></h2></div> 
